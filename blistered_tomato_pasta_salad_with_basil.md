@@ -4,13 +4,13 @@
 
 ---
 
-*1 pound* dried pasta, sich as fusilli bucati or regular fusilli
-*6 tablespoons* extra-virgin olive oil, divided, plus more for drizzling
-*8* medium cloves garlic, thinly sliced
-*2 pints* mixed cherry and/or grape tomatoes
-Kosher salt and freshly ground black pepper
-*15-20* basil leaves, torn
-*3/4 pound* fresh mozzarella, cut into 1/2-inch cubes (optional)
+- *1 pound* dried pasta, sich as fusilli bucati or regular fusilli
+- *6 tablespoons* extra-virgin olive oil, divided, plus more for drizzling
+- *8* medium cloves garlic, thinly sliced
+- *2 pints* mixed cherry and/or grape tomatoes
+- Kosher salt and freshly ground black pepper
+- *15-20* basil leaves, torn
+- *3/4 pound* fresh mozzarella, cut into 1/2-inch cubes (optional)
 
 ---
 

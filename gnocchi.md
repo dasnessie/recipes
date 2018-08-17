@@ -4,10 +4,10 @@
 
 ---
 
-*500 g* Kartoffeln
-*250 g* Mehl
-*50 g* Gries
-Salz
+- *500 g* Kartoffeln
+- *250 g* Mehl
+- *50 g* Gries
+- Salz
 
 ---
 

@@ -4,10 +4,10 @@
 
 ---
 
-500g Mehl
-5 Eier
-Wasser
-Salz
+- *500 g* Mehl
+- *5* Eier
+- Wasser
+- Salz
 
 ---
 

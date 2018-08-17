@@ -5,21 +5,21 @@
 ---
 
 ## Streußelteig:
-*500 g* Mehl
-*250 g* Margerine
-*250 g* Zucker
-*1 Päckchen* Vanillezucker
-*1 Päckchen*  Backpulver
-*1* Ei
+- *500 g* Mehl
+- *250 g* Margerine
+- *250 g* Zucker
+- *1 Päckchen* Vanillezucker
+- *1 Päckchen*  Backpulver
+- *1* Ei
 
 ## Guss:
-*250 g* Butter
-*500 g* Zucker
-*2 Päckchen* Vanillezucker
-*10* Eier
-*2 EL* Grieß
-*2* Zitronen (Saft)
-*1500 g* Quark
+- *250 g* Butter
+- *500 g* Zucker
+- *2 Päckchen* Vanillezucker
+- *10* Eier
+- *2 EL* Grieß
+- *2* Zitronen (Saft)
+- *1500 g* Quark
 
 ---
 

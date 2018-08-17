@@ -4,18 +4,18 @@
 
 ---
 
-*2* große Auberginen
-*1000 ml* Passierte Tomaten
-*1 Handvoll* Frisches Basilikum
-*1* mittelgroße Zwiebel
-*3 Zehen* Knoblauch
-*250 g* Lasagneplatten
-*2 Becher* Créme frâiche
-*100g* Parmesan
-*200g* geriebenen Käse
-Olivenöl
-Mehl
-Gewürze
+- *2* große Auberginen
+- *1000 ml* Passierte Tomaten
+- *1 Handvoll* Frisches Basilikum
+- *1* mittelgroße Zwiebel
+- *3 Zehen* Knoblauch
+- *250 g* Lasagneplatten
+- *2 Becher* Créme frâiche
+- *100g* Parmesan
+- *200g* geriebenen Käse
+- Olivenöl
+- Mehl
+- Gewürze
 
 ---
 

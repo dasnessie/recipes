@@ -1,4 +1,4 @@
-# Süßkartoffel-Chili Con Carne
+# Süßkartoffel-Chili
 
 die Gemüsevariante
 

@@ -4,10 +4,10 @@
 
 ---
 
-*5* Zwiebeln
-*2 EL* Honig
-*1 TL* Paprikapulver
-Butter
+- *5* Zwiebeln
+- *2 EL* Honig
+- *1 TL* Paprikapulver
+- Butter
 
 ---
 
