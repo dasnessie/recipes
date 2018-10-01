@@ -12,7 +12,7 @@
 - *125 g* Risotto-Reis (z.B. Arborio)
 - *100 ml* (alkolfreier) Weißwein (z.B. von LIGHT live)
 - *30 g* geriebener Parmesan
-- *2-4* Blätter Salbei
+- *3* Blätter Salbei
 - *1 EL* Mehl
 - Öl zum Frittieren
 - Salz und Pfeffer

@@ -6,18 +6,18 @@ For such a simple dish, French onion soup should be easy to make great. And yet,
 
 ---
 
-- 6 tablespoons (90g) unsalted butter, plus more for toasts
-- 3 pounds (1.4kg) yellow or mixed onions, sliced 1/8 inch thick (see note)
+- *6 tablespoons (90g)* unsalted butter, plus more for toasts
+- *1.4kg* yellow or mixed onions, sliced 1/8 inch thick (see note)
 - Kosher salt and freshly ground black pepper
-- 1/2 cup (120ml) dry sherry (such as Amontillado)
-- 2 quarts (1.8L) homemade or store-bought low-sodium chicken stock
-- 2 sprigs thyme
-- 1 bay leaf
-- 1 teaspoon (5ml) Asian fish sauce (optional)
-- 1 teaspoon (5ml) cider vinegar
-- 8 bowl-size slices rustic bread, toasted until crisp
-- 1 medium clove garlic
-- 1 pound (450g) Gruyère cheese, grated
+- *1/2 cup (120ml)* dry sherry (such as Amontillado)
+- *1.8L* homemade or store-bought low-sodium chicken stock
+- *2* sprigs thyme
+- *1* bay leaf
+- *1 teaspoon (5ml)* Asian fish sauce (optional)
+- *1 teaspoon (5ml)* cider vinegar
+- *8 bowl-size* slices rustic bread, toasted until crisp
+- *1* medium clove garlic
+- *450g* Gruyère cheese, grated
 - Freshly minced chives, for garnish
 
 ---

@@ -2,18 +2,18 @@
 
 By combining a potato gratin with Hasselback roast potatoes, we deliver the ultimate creamy-in-the-middle, crispy-on-top casserole. It's perfect for the Thanksgiving or Christmas table, or any night you want a show-stopping side dish.
 
-*Serves 4 to 6, casserole, easy, gratin, hasselback potato, holiday, potato, side*
+*5 servings, casserole, easy, gratin, hasselback potato, holiday, potato, side*
 
 ---
 
-- 3 ounces (85g) finely grated Gruyère or Comté cheese
-- 2 ounces (60g) finely grated Parmigiano-Reggiano cheese
-- 2 cups (480ml) heavy cream
-- 2 medium cloves garlic, minced
-- 1 tablespoon fresh thyme leaves, roughly chopped
+- *85 g* finely grated Gruyère or Comté cheese
+- *60 g* finely grated Parmigiano-Reggiano cheese
+- *480 ml* heavy cream
+- *2* medium cloves garlic, minced
+- *1 tablespoon* fresh thyme leaves, roughly chopped
 - Kosher salt and freshly ground black pepper
-- 3 to 3 1/2 pounds (1.4 to 1.6kg) russet potatoes, peeled and sliced 1/8 inch thick on a mandoline slicer (5 to 6 medium potatoes; see note)
-- 2 tablespoons (30g) unsalted butter
+- *1.5 kg* russet potatoes, peeled and sliced 1/8 inch thick on a mandoline slicer (5 to 6 medium potatoes; see note)
+- *2 tablespoons (30g)* unsalted butter
 
 ---
 

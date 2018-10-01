@@ -9,17 +9,18 @@
 - *1* onion
 - *3* garlic cloves
 - *1/4 tsp* chili flakes
-- *4 cans (6 cups / 1560 g)* chopped tomatoes
+- *4 cans (1560 g)* chopped tomatoes
 - *1/2 cup (125 ml)* puy lentils (or lentils of choice), rinsed
 - *1 cup (250 ml)* water
-- *2 sprigs thyme, chopped
-- *20 leaves basil, chopped
+- *2* sprigs thyme, chopped
+- *20* leaves basil, chopped
 sea salt and pepper
 
 ## Shaved roots
 - *1* small celeriac root
 - *3* parsnip roots
 
+## Vegetable layers
 - *1 tbsp* coconut oil, butter, ghee or olive oil
 - *2* clove garlic
 - *20* brown mushrooms
