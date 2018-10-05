@@ -1,5 +1,5 @@
 # Käsekuchen mit Kirschen
-*vegetarisch, kuchen*
+*vegetarisch, Kuchen*
 ---
 ## für den Teig:
 - *250 g* Mehl
