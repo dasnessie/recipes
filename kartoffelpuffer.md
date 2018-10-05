@@ -1,5 +1,5 @@
 # Kartoffelpuffer
-*servings: 3, vegetarian*
+*3 Portionen, vegetarisch*
 ---
 - *1 kg* Kartoffeln
 - *2* Eier
