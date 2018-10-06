@@ -14,7 +14,8 @@
 - *1 cup (250 ml)* water
 - *2* sprigs thyme, chopped
 - *20* leaves basil, chopped
-sea salt and pepper
+- sea salt 
+- pepper
 
 ## Shaved roots
 - *1* small celeriac root
