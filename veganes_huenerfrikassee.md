@@ -1,5 +1,6 @@
 # Veganes 'Hühnerfrikassee'
 *Portionen: 4, vegan, vegetarisch*
+
 ---
 - *100 g* Sojageschnetzeltes, mittel
 - Gemüsebrühe zum Einweichen, nach Packungsangabe der Sojaschnetzel

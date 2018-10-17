@@ -1,5 +1,6 @@
 ## Pizzateig
 *3 Bleche, vegetarisch, vegan*
+
 ---
 - *1 kg* Mehl
 - *8 g* Trockenhefe

@@ -1,5 +1,6 @@
 # Apfelkuchen mit Vanilleguss
 *vegetarisch, Kuchen*
+
 ---
 - *230 g* Mehl
 - *1 Prise* Salz
