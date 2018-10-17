@@ -1,6 +1,6 @@
 # Süßkartoffel-Chili
 
-*4 Portionen, Eintopf, Gemüse, Hauptspeise, Vegan, Vegetarisch*
+*4 Portionen, Eintopf, Gemüse, Hauptspeise, Vegan, Vegetarisch, Festival*
 
 ---
 

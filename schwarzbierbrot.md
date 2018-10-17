@@ -7,7 +7,8 @@ Ein einfaches Brot aus Schwarzbier
 ---
 
 - *0,5 l* Schwarzbier
-- *500 g* Mehl
+- *250 g* Weizenmehl
+- *250 g* Roggenmehl
 - *1 TL* Salz
 - *1 Pck.* Backpulver
 - *1 Prise* Zucker
@@ -16,5 +17,3 @@ Ein einfaches Brot aus Schwarzbier
 ---
 
 Einfach alle Zutaten vermengen und in einer Kastenform bei 180°C für 45 Minuten backen.
-
-Tipp: Ich nehme gerne Roggen- oder Dinkelmehl anstatt Weizenmehl. Dann wird der Teig dunkler und etwas fester.
