@@ -1,4 +1,5 @@
-## Italienischer Nudelsalat
+# Italienischer Nudelsalat
+
 *8 Portionen, vegetarisch*
 
 ---
@@ -12,7 +13,7 @@
 - *20 g* Basilikum
 - *20 g* Petersilie
 - *5 EL* Olivenöl
-- *5 EL Balsamico*
+- *5 EL* Balsamico
 - *10 EL* Öl von getrockneten Tomaten
 ---
 1. Die Nudeln in Salzwasser kochen, abgießen, heiß abspülen und auskühlen lassen. 

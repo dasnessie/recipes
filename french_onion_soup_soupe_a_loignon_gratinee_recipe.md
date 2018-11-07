@@ -1,4 +1,4 @@
-# French Onion Soup (Soupe à l'Oignon Gratinée) Recipe
+# French Onion Soup (Soupe à l’Oignon Gratinée) Recipe
 
 For such a simple dish, French onion soup should be easy to make great. And yet, so many versions taste like a cup of burnt-onion tea with melted cheese trying its best to cover up the flaws. This recipe develops great flavor with a long, slow caramelization of the onions, then punches it up with cider vinegar, fresh chives, and a surprise ingredient: fish sauce.
 

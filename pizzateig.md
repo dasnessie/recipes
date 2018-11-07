@@ -1,4 +1,5 @@
-## Pizzateig
+# Pizzateig
+
 *3 Bleche, vegetarisch, vegan*
 
 ---
