@@ -1,6 +1,8 @@
 # Celeriac, Mushroom and Tomato Lasagna
 
-*7 servings, vegan*
+*vegan*
+
+**7 servings**
 
 ---
 

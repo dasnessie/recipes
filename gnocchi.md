@@ -1,6 +1,8 @@
 # Gnocci
 
-*5 Portionen, vegetarisch, vegan*
+*vegetarisch, vegan*
+
+**5 Portionen**
 
 ---
 

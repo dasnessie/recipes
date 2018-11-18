@@ -1,6 +1,8 @@
 # Italienischer Nudelsalat
 
-*8 Portionen, vegetarisch*
+*vegetarisch*
+
+**8 Portionen**
 
 ---
 - *500 g* Nudeln

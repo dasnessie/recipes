@@ -2,7 +2,9 @@
 
 Vegetarische Quiche aus Mürbeteig
 
-*6 Portionen, Backen, Ei, Gemüse, Hauptspeise, Snack, Tarte, Vorspeise*
+*Backen, Ei, Gemüse, Hauptspeise, Snack, Tarte, Vorspeise*
+
+**6 Portionen**
 
 ---
 

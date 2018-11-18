@@ -1,6 +1,8 @@
 # Inger-Rosmarin-Nudeln
 
-*2 Portionen, Pasta*
+*Pasta*
+
+**2 Portionen**
 
 ---
 

@@ -1,6 +1,8 @@
 # Kürbisrisotto mit frittiertem Salbei
 
-*2 Portionen, vegeratisch*
+*vegeratisch*
+
+**2 Portionen**
 
 ---
 

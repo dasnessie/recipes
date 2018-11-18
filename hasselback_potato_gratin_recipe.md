@@ -2,7 +2,9 @@
 
 By combining a potato gratin with Hasselback roast potatoes, we deliver the ultimate creamy-in-the-middle, crispy-on-top casserole. It's perfect for the Thanksgiving or Christmas table, or any night you want a show-stopping side dish.
 
-*5 servings, casserole, easy, gratin, hasselback potato, holiday, potato, side*
+*casserole, easy, gratin, hasselback potato, holiday, potato, side*
+
+**5 servings**
 
 ---
 

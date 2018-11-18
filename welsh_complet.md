@@ -2,7 +2,9 @@
 
 Ein klassisches Rezept aus dem Nord pas de Calais mit viel Käse. (Mengen sollten noch angepasst werden, das hier ist eher Hauptspeise)
 
-*4 Portionen, französisch*
+*französisch*
+
+**4 Portionen**
 
 ---
 

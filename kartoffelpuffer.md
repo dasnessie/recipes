@@ -1,5 +1,7 @@
 # Kartoffelpuffer
-*3 Portionen, vegetarisch*
+*vegetarisch*
+
+**3 Portionen**
 
 ---
 - *1 kg* Kartoffeln
