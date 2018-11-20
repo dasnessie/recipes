@@ -14,7 +14,7 @@
 - *1 große Dose* Kidneybohnen
 - *1 große Dose* Tomaten, geschält
 - *1* Lorbeerblatt
-- *1 TL, gehäuft* Kümmel (oder Kreuzkümmel)
+- *1 TL, gehäuft* Kümmel, gemörsert (alternativ Kreuzkümmel)
 - *1 TL* Cayennepfeffer
 - *1 TL* Paprikapulver, edelsüß
 - *1/2 TL* Oregano
@@ -27,5 +27,5 @@
 Zwiebel würfeln, Knoblauch pressen und die Chilischote in Ringe schneiden. Mit 1 EL Olivenöl im Topf glasig anbraten.
 Anschließend die gewürfelten Süßkartoffeln dazugeben. Nach kurzer Zeit die in Würfel geschnittene Aubergine und Zucchini dazugeben sowie die abgetropften Bohnen und Tomaten aus der Dose. Das Ganze mit den Gewürzen würzen und nach 5 Min. die Gemüsebrühe dazugeben. So lange kochen lassen, bis die Kartoffeln weich sind.
 
-Dazu passt frisches Fladenbrot oder Vollkornbrot.
+Ergänzend kann man gut einen Klecks Schmand oder ein Stück Fladenbrot nehmen.
 
