@@ -1,6 +1,8 @@
 # Nudeln mit Feta - Sahnesauce
 
-*4 Portionen, Camping, einfach, gekocht, Hauptspeise, Käse, Nudeln, Pasta, raffiniert oder preiswert, Resteverwertung, Saucen, Schnell, Studentenküche, Vegetarisch*
+*Camping, einfach, gekocht, Hauptspeise, Käse, Nudeln, Pasta, raffiniert oder preiswert, Resteverwertung, Saucen, Schnell, Studentenküche, Vegetarisch*
+
+**4 Portionen**
 
 ---
 

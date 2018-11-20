@@ -2,7 +2,9 @@
 
 A simple and filling stir-fry of General Tso's chickpeas, a vegetarian and vegan version of the classic Chinese-American restaurant dish. Gluten-free optional.
 
-*3 servings, Asian, Main Course, gluten-free, vegan*
+*Asian, Main Course, gluten-free, vegan*
+
+**3 servings**
 
 ---
 

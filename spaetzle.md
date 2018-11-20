@@ -1,6 +1,8 @@
 # Spätzle
 
-*4 Portionen, Pasta, vegetarisch*
+*Pasta, vegetarisch*
+
+**4 Portionen**
 
 ---
 

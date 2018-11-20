@@ -2,7 +2,9 @@
 
 A handful of humble ingredients transforms into an incredible easy midweek meal. The key step is emulsifying the pasta (step 7) which is when the oils in the pan react with the starch in the pasta to form a sticky, luscious sauce that coats every single strand of pasta. It's how proper Italian restaurants can make the most simple of pastas so incredible!
 
-*3 servings, Pasta, vegetarian*
+*Pasta, vegetarian*
+
+**3 servings**
 
 ---
 
