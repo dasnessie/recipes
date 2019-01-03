@@ -21,7 +21,7 @@
 - *1 TL* Gemüsebrühepulver
 - *1 EL* getrockneter Majoran
 - Salz
-- 12 Lasagneblätter
+- *12* Lasagneblätter
 
 ### Vegetarische Variante
 - *75 g* Parmesan am Stück
@@ -52,7 +52,7 @@
 
 Für die Lasagne Zwiebeln und Knoblauch schälen und fein würfeln. Chili waschen, längs aufschneiden und fein würfeln. Möhren schälen und ca. 1cm groß würfeln. Öl in Topf erhitzen. Zwiebeln, Knoblauch und Chili mit Lorbeerblättern und Zimt ca. 3 Minuten darin anbraten. Möhren und Linsen zugeben, gut umrühren, Wasser aufgießen, aufkochen und ca. 25 Minuten offen garen.
 
-Inzwischen für das Tsatsiki Knoblauch schälen und fein würfeln. Basilikum kalt abbrausen, trocken schütteln, Blättchen abzupfen und in feine Streifen schneiden. Gurke waschen, grob raspeln, in Sieb mit Salz bestreuen und ca. 10 Minuten Wasser ziehen lassen. Gurke gut ausdrücken und mit Knoblauch, Joghurt, Öl und evtl. Zitronensaft vermischen. Würzig mit Salz unf Pfeffer abschmecken.
+Inzwischen für das Tsatsiki Knoblauch schälen und fein würfeln. Basilikum kalt abbrausen, trocken schütteln, Blättchen abzupfen und in feine Streifen schneiden. Gurke waschen, grob raspeln, in Sieb mit Salz bestreuen und ca. 10 Minuten Wasser ziehen lassen. Gurke gut ausdrücken und mit Knoblauch, Joghurt, Öl und evtl. Zitronensaft vermischen. Würzig mit Salz und Pfeffer abschmecken.
 
 Weiter für die Lasagne Zimtstange und Lorbeerblätter aus der Soße entfernen und Tomaten unterrühren. Mit Chilipulver, Gemüsebrühe, Majoran und Salz deftig würzen. Backofen auf 180 °C (Umluft 160 °C) vorheizen. 
 
