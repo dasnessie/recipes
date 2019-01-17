@@ -2,6 +2,8 @@
 
 *Auflauf, vegetarisch*
 
+**4 Portionen**
+
 ---
 
 - *2* große Auberginen
