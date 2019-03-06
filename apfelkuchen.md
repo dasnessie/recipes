@@ -4,12 +4,6 @@
 
 ---
 
-## Streuselteig:
-- *300 g* Mehl
-- *225 g* Zucker
-- *3 Päckchen*  Vanillezucker
-- *225 g* Butter
-
 ## Teig:
 - *200g* Butter
 - *200g* Zucker
@@ -25,7 +19,13 @@
 ## Füllung:
 - *1 kg* (Fall-)Äpfel
 - *1 handvoll* in Rum (oder Wasser) eingeweichte Rosinen
-etwas Zimt
+- etwas Zimt
+
+## Streuselteig:
+- *300 g* Mehl
+- *225 g* Zucker
+- *3 Päckchen*  Vanillezucker
+- *225 g* Butter
 
 ---
 
