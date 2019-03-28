@@ -15,6 +15,6 @@
 
 Alle Zutaten außer Öl in ein schmales, hohes Gefäß geben und mit dem Pürrierstab schaumig schlagen.
 
-Das Öl gan langsam zufügen, wärend der Pürrierstab läuft, bis die gewünschte Festigkeit erreicht ist.
+Das Öl ganz langsam zufügen, wärend der Pürrierstab läuft, bis die gewünschte Festigkeit erreicht ist.
 
 Nach Bedarf mit Salz, Senf, Essig, Zucker abschmecken.
