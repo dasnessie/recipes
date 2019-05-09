@@ -22,9 +22,9 @@ Die lange Gehzeit des Teiges (>11 h) sorgt für ein gleichmäßiges, fluffiges B
 
 Mehl und Salz in eine Schüssel sieben. Hefe zerbröckeln und mit dem Zucker verrühren. Dabei löst sich die Hefe auf und wird flüssig.
 
-Alle Zutaten bis auf die Butter zu einem gleichmäßigen Teig verkneten.
+Alle Zutaten bis auf die Margerine zu einem gleichmäßigen Teig verkneten.
 
-Die Butter würfeln und nach und nach unterkneten, bis sie gleichmäßig verteilt ist.
+Die Margerine würfeln und nach und nach unterkneten, bis sie gleichmäßig verteilt ist.
 
 Den Teig abdecken und über Nacht im Kühlschrank abdecken.
 
