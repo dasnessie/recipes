@@ -11,9 +11,9 @@
 - *1* onion
 - *3* garlic cloves
 - *1/4 tsp* chili flakes
-- *4 cans (1560 g)* chopped tomatoes
-- *1/2 cup (125 ml)* puy lentils (or lentils of choice), rinsed
-- *1 cup (250 ml)* water
+- *1560 g* canned chopped tomatoes
+- *125 ml* puy lentils (or lentils of choice), rinsed
+- *250 ml* water
 - *2* sprigs thyme, chopped
 - *20* leaves basil, chopped
 - sea salt 
