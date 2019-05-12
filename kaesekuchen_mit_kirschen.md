@@ -1,7 +1,9 @@
 # Käsekuchen mit Kirschen
+
 *vegetarisch, Kuchen*
 
 ---
+
 ## für den Teig:
 - *250 g* Mehl
 - *1 Msp.* Backpulver
@@ -18,7 +20,9 @@
 - *75 g* Butter
 - *65 g* Mehl
 - *350 g* Sauerkirschen aus dem Glas (Abtropfgewicht)
+
 ---
+
 1. Für den Teig das Mehl in eine Schüssel geben und in die Mitte eine Kuhle drücken. Den Zucker in diese Mulde streuen und das Ei ebenfalls in die Mulde gleiten lassen. Die kalte Butter in Stücke schneiden und auf dem Mehl verteilen.
 2. Alle Zutaten mit dem Messer gründlich durchhacken. Die so entstandenen Brösel rasch mit kühlen Händen durchwalken. Den Teig zu einer Kugel formen, in Folie wickeln und kalt stellen.
 3. Für die Füllung den Quark mit dem Zucker, der Zitronenschale, dem Zirtonensaft, den Eiern, dem Fett und dem Mehl verrühren.

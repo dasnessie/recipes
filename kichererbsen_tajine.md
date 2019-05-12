@@ -1,5 +1,7 @@
 # Kichererbsen-Tajine
-*Portionen: 3, vegan, vegetarisch, Eintopf*
+*vegan, vegetarisch, Eintopf*
+
+**3 Portionen, 2 Liter**
 
 ---
 - *250 g* Möhren

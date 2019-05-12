@@ -1,6 +1,8 @@
 # Cranberry-Brownies
 
-*1/2 Blech, Kuchen, vegan*
+*Kuchen, vegan*
+
+** 1/2 Blech**
 
 ---
 

@@ -1,5 +1,8 @@
 # Veganes 'Hühnerfrikassee'
-*Portionen: 4, vegan, vegetarisch*
+
+*vegan, vegetarisch*
+
+**4 Portionen**
 
 ---
 - *100 g* Sojageschnetzeltes, mittel

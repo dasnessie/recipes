@@ -1,6 +1,8 @@
 # Pizzateig
 
-*3 Bleche, vegetarisch, vegan*
+*vegetarisch, vegan*
+
+**3 Bleche**
 
 ---
 - *1 kg* Mehl
