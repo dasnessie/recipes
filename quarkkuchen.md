@@ -1,6 +1,8 @@
 # Quarkkuchen
 
-*1 Blech, Kuchen, vegetarisch*
+*Kuchen, vegetarisch*
+
+**1 Blech**
 
 ---
 
