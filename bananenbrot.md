@@ -14,12 +14,13 @@
 - *125 ml* Pflanzendrink
 - *4* reife Bananen
 - *125 ml* gemahlene Nüsse
+- *1 Tafel* vegane Zartbitterschokolade (optional)
 - Fett für die Form
 
 ---
 
 Mehl, Backpulver und Salz vermischen.
 
-Bananen zermatschen. Zucker, Öl und Pflanzendrink zugeben und zu einer homogenen Masse verrühren. Mehlmischung und Nüsse zugeben und zu einem gleichmäßigen Teig verarbeiten.
+Bananen zermatschen. Zucker, Öl und Pflanzendrink zugeben und zu einer homogenen Masse verrühren. Mehlmischung und Nüsse sowie optional gehackte Schokolade zugeben und zu einem gleichmäßigen Teig verarbeiten.
 
-Im Ofen ca. 50 Minuten (Laib) bzw. 20 Minuten (Muffins) backen. Kurz auskühlen lassen, dann aus der Form stürzen.
+Im Ofen bei 175°C (Umluft) ca. 50 Minuten (Laib) bzw. 20 Minuten (Muffins) backen. Kurz auskühlen lassen, dann aus der Form stürzen.
