@@ -2,7 +2,7 @@
 
 *vegan, vegetarisch, Kuchen*
 
-**20 Kekse, 2 Bleche**
+**32 Kekse, 2 Bleche**
 
 ---
 
@@ -22,7 +22,9 @@
 
 ---
 
-Butter und Zucker cremig rühren. Ahornsirup, Zuckerrübensirup und Vanilleextrakt unterrühren.
+Butter und Zucker cremig rühren. 
+
+Ahornsirup, Zuckerrübensirup und Vanilleextrakt unterrühren.
 
 Haferflocken, Mehl, Backpulver, Salz und Zimt vermischen.
 
