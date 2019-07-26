@@ -2,7 +2,7 @@
 
 deftig-lecker, zu Rigatoni oder Penne
 
-*vegan, vegetarisch, pasta, saucen, einfriergeeignet*
+*vegan, vegetarisch, Nudeln, Saucen, einfriergeeignet*
 
 **4 Portionen**
 
