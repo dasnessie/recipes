@@ -2,7 +2,7 @@
 
 kostet fast nichts, 3,5% Fett
 
-*vegan, vegetarisch*
+*vegan, vegetarisch, Getränke*
 
 **1 Liter**
 

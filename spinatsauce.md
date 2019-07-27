@@ -2,7 +2,7 @@
 
 Nudelsauce zu Penne o.ä.
 
-*vegan, vegetarisch, Nudeln, Saucen*
+*vegan, vegetarisch, Nudeln, Saucen, einfriergeeignet*
 
 **2 Portionen**
 

@@ -1,6 +1,6 @@
 # Linsenlasagne
 
-*Auflauf, vegetarisch, vegan*
+*Auflauf, vegetarisch, vegan, Nudeln*
 
 **4 Portionen**
 

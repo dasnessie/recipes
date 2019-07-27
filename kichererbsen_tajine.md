@@ -1,5 +1,6 @@
 # Kichererbsen-Tajine
-*vegan, vegetarisch, Eintopf*
+
+*vegan, vegetarisch, Eintopf, einfriergeeignet*
 
 **3 Portionen, 2 Liter**
 

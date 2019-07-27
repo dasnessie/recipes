@@ -1,6 +1,6 @@
 # Veganes 'Hühnerfrikassee'
 
-*vegan, vegetarisch*
+*vegan, vegetarisch, Reis, einfriergeeignet*
 
 **4 Portionen**
 
