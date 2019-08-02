@@ -38,6 +38,6 @@ Für den Guss die Cashews abgießen. Alle Zutaten zu einer gleichmäßigen Masse
 
 Die Hälfte der Kartoffeln in die Auflaufform geben. Die Füllung darauf verteilen. Mit den restlichen Kartoffeln bedecken und mit dem Guss begießen.
 
-Im vorgeheizten Ofen bei 160°C ca 45 Minuten backen, bis die Kartoffeln weich sind und der Auflauf goldbraun ist.
+Im vorgeheizten Ofen bei 160°C Umluft ca. 45 Minuten backen, bis die Kartoffeln weich sind und der Auflauf goldbraun ist.
 
 Dazu passt ein grüner Salat.
