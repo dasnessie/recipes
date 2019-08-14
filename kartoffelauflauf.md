@@ -26,7 +26,7 @@
 
 ---
 
-Die Cachews mit kochendem Wasser übergießen und einweichen lassen.
+Die Cashews mit kochendem Wasser übergießen und einweichen lassen.
 
 Die Kartoffeln schälen und in dünne Scheiben schneiden.
 
