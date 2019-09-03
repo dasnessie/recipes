@@ -23,8 +23,8 @@ deftig-lecker, zu Rigatoni oder Penne
 
 ---
 
-Linsen in Sieb kalt abspülen, abtropfen lassen. Zwiebeln schälen und fein würfeln. Knoblauch schälen und in feine Scheiben schneiden. Ziebeln in Öl in Topf anschwitzen. Wasser, Linsen und Lorbeerblätter zugeben, aufkochen. In geschlossenem Topt 10 Minuten köcheln lassen.
+Linsen in Sieb kalt abspülen, abtropfen lassen. Zwiebeln schälen und fein würfeln. Knoblauch schälen und in feine Scheiben schneiden. Zwiebeln in Öl in Topf anschwitzen. Wasser, Linsen und Lorbeerblätter zugeben, aufkochen. In geschlossenem Topf 10 Minuten köcheln lassen.
 
 Tomaten (und getrockneten Majoran) zu den Linsen geben, weitere 20 Minuten abgedeckt köcheln lassen.
 
-Oliven abtropfen und in scheiben schneiden. Kapern abtropfen lassen. Frischen Majoran abspülen, Blätter abzupfen und fein hacken. Oliven, Kapern und Majoran zur Soße geben und Soße mit Salz und Pfeffer abschmecken.
+Oliven abtropfen und in Scheiben schneiden. Kapern abtropfen lassen. Frischen Majoran abspülen, Blätter abzupfen und fein hacken. Oliven, Kapern und Majoran zur Soße geben und Soße mit Salz und Pfeffer abschmecken.
