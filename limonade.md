@@ -10,12 +10,12 @@ mit Ingwer und Minze
 
 - *2* Bio-Zitronen
 - *200 ml* Zitronensaft
-- *5 Stiele Minze
+- *5 Stiele* Minze
 
 ## Sirup
 
 - *10 g* Ingwer
-- *500 ml Wasser, nach Belieben mit Kohlensäure
+- *500 ml* Wasser, nach Belieben mit Kohlensäure
 - *200 g* Zucker
 
 ---
