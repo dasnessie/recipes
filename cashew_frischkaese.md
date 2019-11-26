@@ -6,7 +6,7 @@
 
 ---
 
-- *150 g* Cashews
+- *150 g* Cashewkerne
 - *275 g* Sojajoghurt, ungesüßt (oder Wasser)
 - *130 g* Sauerkraut
 - *2 EL* Tapiokastärke

@@ -21,7 +21,7 @@
 - schwarzer Pfeffer
 - *1/2 TL* gemahlener Koriander
 - *1/2 TL* gemahlener Kreuzkümmel
-- *1 Msp.* Cayenepfeffer
+- *1 Msp.* Cayennepfeffer
 - *2 EL* Zitronensaft
 
 ## Linsen-Reis

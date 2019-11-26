@@ -14,7 +14,7 @@
 - *2 EL* Sojamehl
 - Salz
 - Pfeffer
-- Chillipulver
+- Chilipulver
 - Räucherpaprika
 
 ---

@@ -15,7 +15,7 @@ Beilage zu Salat, Gegrilltem; oder als Snack
 - *1 TL* Zucker
 - *1 TL* Salz
 - *50 g* gefrorene Kräuter, mediteran
-- *1 TL* Cayenepfeffer
+- *1 TL* Cayennepfeffer
 - *1 TL* Paprika geräuchert
 - *2 TL* Thymian
 - *2 TL* Majoran

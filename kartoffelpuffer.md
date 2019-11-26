@@ -9,7 +9,7 @@
 - *1* Zwiebel
 - *50 g* Mehl
 - Salz
-- Bratfett
+- Bratöl
 - Apfelmus
 ---
 1. Die Kartoffeln putzen und in grobe Würfel schneiden. Die Zwiebeln pellen und vierteln.

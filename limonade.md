@@ -8,7 +8,7 @@ mit Ingwer und Minze
 
 ---
 
-- *2* Bio-Zitronen
+- *2* Bio-Zitrone
 - *200 ml* Zitronensaft
 - *5 Stiele* Minze
 - *500 ml* Wasser, nach Belieben mit Kohlensäure

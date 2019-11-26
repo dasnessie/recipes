@@ -7,7 +7,7 @@ Hält sich lange im Kühlschrank und wird mit der Zeit besser.
 
 ---
 
-- *215 g* grob gemahlene Cashews
+- *215 g* grob gemahlene Cashewkerne
 - *2 EL* Kokosfett, geschmolzen
 - *1 EL* helle Misopaste
 - *1 EL* Hefeflocken

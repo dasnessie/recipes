@@ -8,7 +8,7 @@
 
 - *150 g* Trockenobst, zB Pflaumen, Aprikosen, Äpfel
 - *100 g* Weichweizengrieß
-- *500 ml* (Pflanzen-)Milch
+- *500 ml* (Pflanzen-) Milch
 - *2 EL* Zucker
 - *1 Prise* Salz
 - *1 TL* Zimt

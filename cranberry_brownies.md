@@ -11,7 +11,7 @@
 - *50 g* Speisestärke
 - *50 g* Kakaopulver
 - *2 TL* Backpulver
-- *170 g* brauner Rohrzucker
+- *170 g* brauner Zucker
 - *100 g* Zartbitterschokolade (70 % Kakao)
 - *150 g* Margarine
 - *1/2 TL* Zimtpulver
