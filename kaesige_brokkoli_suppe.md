@@ -34,7 +34,7 @@ Zwiebel schälen und würfeln. Knoblauch schälen und reiben oder durch eine Kno
 
 Kartoffeln, Möhren und Gemüsebrühe zugeben und kochen, bis das Gemüse weich ist.
 
-Hefeflocken, Misopaste, Weißwein, Zwiebelpulver, Senf, Paprikapulver und Kokosmilch zugeben. Die Suppe fein pürrieren.
+Hefeflocken, Misopaste, Weißwein, Zwiebelpulver, Senf, Paprikapulver und Kokosmilch zugeben. Die Suppe fein pürieren.
 
 Brokkoli zugeben und kochen, bis der Brokkoli gar ist.
 

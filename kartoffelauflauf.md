@@ -34,7 +34,7 @@ Für die Füllung die äußere Schicht vom Räuchertofu abschneiden. Den inneren
 
 Die Füllung im Öl der getrockneten Tomaten anbraten, bis sie goldbraun ist.
 
-Für den Guss die Cashews abgießen. Alle Zutaten zu einer gleichmäßigen Masse pürrieren. Kräftig mit Salz und Pfeffer würzen.
+Für den Guss die Cashews abgießen. Alle Zutaten zu einer gleichmäßigen Masse pürieren. Kräftig mit Salz und Pfeffer würzen.
 
 Die Hälfte der Kartoffeln in die Auflaufform geben. Die Füllung darauf verteilen. Mit den restlichen Kartoffeln bedecken und mit dem Guss begießen.
 

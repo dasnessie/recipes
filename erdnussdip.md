@@ -19,4 +19,4 @@ Zu Sommerrollen o.ä.
 
 ---
 
-Alle Zutaten zu einer homogenen Masse pürrieren.
+Alle Zutaten zu einer homogenen Masse pürieren.

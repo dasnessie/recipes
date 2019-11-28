@@ -20,6 +20,6 @@
 
 Zitronensaft, Tahin, Knoblauch, Olivenöl, Kreuzkümmel, Salz im Standmixer vermischen. 
 
-Kichererbsen in 100g-Portionen zugeben und jeweils unterpürrieren. Nach Bedarf Wasser hinzufügen, um eine glatte Konsistenz zu erhalten.
+Kichererbsen in 100g-Portionen zugeben und jeweils unterpürieren. Nach Bedarf Wasser hinzufügen, um eine glatte Konsistenz zu erhalten.
 
 Zum Servieren mit Olivenöl beträufeln und mit Paprika bestreuen.

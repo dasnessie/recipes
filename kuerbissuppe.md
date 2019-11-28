@@ -32,6 +32,6 @@ Gemüse waschen, putzen und grob würfeln (Kantenlänge 3-4 cm).
 
 Mit Gemüsebrühe und Orangensaft ablöschen. Aufköchen und köcheln lassen, bis das Gemüse weich ist.
 
-Sojasahne zugeben. Die Suppe fein pürrieren.
+Sojasahne zugeben. Die Suppe fein pürieren.
 
 Mit Koriander, Zimt und Salz abschmecken.
