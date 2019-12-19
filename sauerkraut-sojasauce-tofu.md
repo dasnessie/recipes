@@ -11,6 +11,8 @@
 - *250 g* Naturtofu
 - *9 EL* helle Sojasoße
 - *250 g* Basmatireis
+- *100 g* Pflanzensahne
+- *500 ml* Wasser
 - Salz
 - *80 g* Zwiebeln
 - *2 Zehen* Knoblauch
@@ -25,7 +27,7 @@
 
 Sauerkraut abtropfen lassen, Saft auffangen. Ingwer fein würfeln. Tofu auspressen, 1 cm groß würfeln. Tofu in Mischung aus Sauerkrautsaft, Hälfte der Sojasoße, und Hälfte des Ingwers ca. 30 Minuten marinieren.
 
-Reis kochen. Zwiebeln und Knoblauch fein würfeln. Paprika in 2 cm große Würfel schneiden.
+Wasser aufkochen, Sahne zugeben, salzen. Reis darin garen, bis alle Flüssigkeit aufgenommen ist. Zwiebeln und Knoblauch fein würfeln. Paprika in 2 cm große Würfel schneiden.
 
 Tofu aus Marinande nehmen, Hälfte des Öls in Pfanne erhitzen und Tofu darin knusprig braten. Mit Hälfte der verbleibenden Sojasoße ablöschen, einkochen lassen, Tofu aus Pfanne nehmen.
 
