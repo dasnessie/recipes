@@ -2,6 +2,8 @@
 
 *vegan, vegetarisch, Saucen*
 
+**300 ml**
+
 ---
 
 - *60 ml* Aquafaba (Flüssigkeit aus Kichererbsendose, Dosenbohnenflüssigkeit geht auch, aber nicht so gut)
@@ -13,8 +15,8 @@
 
 ---
 
-Alle Zutaten außer Öl in ein schmales, hohes Gefäß geben und mit dem Pürrierstab schaumig schlagen.
+Alle Zutaten außer Öl in ein schmales, hohes Gefäß geben und mit dem Pürierstab schaumig schlagen.
 
-Das Öl ganz langsam zufügen, wärend der Pürrierstab läuft, bis die gewünschte Festigkeit erreicht ist.
+Das Öl ganz langsam zufügen, wärend der Pürierstab läuft, bis die gewünschte Festigkeit erreicht ist.
 
 Nach Bedarf mit Salz, Senf, Essig, Zucker abschmecken.

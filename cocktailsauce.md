@@ -6,8 +6,8 @@
 
 ---
 
-- *100 g* Sojajoghurt (ungesüßt)
-- *100 g* [Mayo, vegan](mayo.md)
+- *100 ml* Sojajoghurt (ungesüßt)
+- *100 ml* [Mayo, vegan](mayo.md)
 - *1 EL* Agavendicksaft
 - *1 EL* Zitronensaft
 - *3 Zehen* Knoblauch
