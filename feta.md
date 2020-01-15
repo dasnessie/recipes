@@ -15,7 +15,7 @@ fester Feta im Block
 
 Eine entsprechend große Form mit einem sauberen Küchenhandtuch oder Frischhaltefolie auslegen.
 
-Kokosfett schmelzen. Fetabasis und Kokosfett vermischen, bis alles gelichmäsig verteilt ist, evtl in der Küchenmaschine.
+Kokosfett schmelzen. Fetabasis und Kokosfett vermischen, bis alles gleichmäßig verteilt ist, evtl. in der Küchenmaschine.
 
 Masse in die Form füllen, festdrücken und abgedeckt mindestens 8 Stunden kühlen.
 
