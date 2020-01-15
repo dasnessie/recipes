@@ -2,7 +2,7 @@
 
 Ein sehr leckeres Mittagessen, das in knapp 30 Minuten auf dem Tisch steht! Frisch, gesund und saisonal überzeugt die Hirse-Pfanne einfach jeden!
 
-**4 Portionen**
+**3 Portionen**
 
 ---
 
@@ -17,7 +17,7 @@ Ein sehr leckeres Mittagessen, das in knapp 30 Minuten auf dem Tisch steht! Fris
 - schwarzer Pfeffer*
 - *1 Bund*  Dill (30 g = 1 Bund)
 - *2-3 Stiele* Pfefferminze (alternativ: 2-3 Stiele = ¼ TL getrocknete Minze)
-- *200 g* Feta
+- *200 g* [Feta](feta.md)
 
 ---
 
