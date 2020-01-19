@@ -4,6 +4,8 @@ veganer Brotaufstrich mit Fetageschmack und Oliven
 
 *vegan, vegetarisch, Käse*
 
+**5 Brötchen**
+
 ---
 
 - *150 g* Oliven
