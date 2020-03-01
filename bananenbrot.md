@@ -1,6 +1,6 @@
 # Bananenbrot mit Nüssen
 
-*vegan, vegetarisch, Kuchen*
+*vegan, vegetarisch, Kuchen, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **1 Laib, 18 Muffins**
 

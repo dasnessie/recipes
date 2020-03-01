@@ -1,10 +1,11 @@
 # Kichererbsen-Tajine
 
-*vegan, vegetarisch, Eintopf, einfriergeeignet*
+*vegan, vegetarisch, Eintopf, einfriergeeignet, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **3 Portionen, 2 Liter**
 
 ---
+
 - *250 g* Möhren
 - *1* Lauch
 - *2* Zwiebeln
@@ -22,7 +23,11 @@
 - Salz
 - Pfeffer
 - Brötchen o.ä. als Beilage (optional)
+
 ---
-1. Möhren schälen und in Scheiben schneiden. Lauch putzen, in Ringe schneiden, waschen und abtropfen lassen. Zwiebeln schälen und fein würfeln. Kichererbsen in einem Sieb abspülen und abtropfen lassen.
-2. Öl in einem Topf erhitzen. Möhren, Lauch und Zwiebeln darin anbraten. Agavendicksaft dazugeben und leicht karamellisieren lassen. Tomaten, Kichererbsen, Kräuter der Provence, Ras el-Hanout und Brühe dazugeben, aufkochen und bei schwacher bis mittlerer Hitze zugedeckt 10 Min. köcheln lassen.
-3. Inzwischen Knoblauch schälen und fein hacken. Petersilie waschen, trocken schütteln, Blätter abzupfen und fein hacken. Zitrone heiß waschen, abtrocknen, die Schale abreiben und den Saft auspressen. Knoblauch, Petersilie und Zitronenschale mischen, mit Oliven zum Gemüse geben und noch 1 Min. ziehen lassen. Mit Salz, Pfeffer und Zitronensaft abschmecken.
+
+Möhren schälen und in Scheiben schneiden. Lauch putzen, in Ringe schneiden, waschen und abtropfen lassen. Zwiebeln schälen und fein würfeln. Kichererbsen in einem Sieb abspülen und abtropfen lassen.
+
+Öl in einem Topf erhitzen. Möhren, Lauch und Zwiebeln darin anbraten. Agavendicksaft dazugeben und leicht karamellisieren lassen. Tomaten, Kichererbsen, Kräuter der Provence, Ras el-Hanout und Brühe dazugeben, aufkochen und bei schwacher bis mittlerer Hitze zugedeckt 10 Min. köcheln lassen.
+
+Inzwischen Knoblauch schälen und fein hacken. Petersilie waschen, trocken schütteln, Blätter abzupfen und fein hacken. Zitrone heiß waschen, abtrocknen, die Schale abreiben und den Saft auspressen. Knoblauch, Petersilie und Zitronenschale mischen, mit Oliven zum Gemüse geben und noch 1 Min. ziehen lassen. Mit Salz, Pfeffer und Zitronensaft abschmecken.

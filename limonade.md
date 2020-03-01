@@ -2,7 +2,7 @@
 
 mit Ingwer und Minze
 
-*vegan, vegetarisch, Getränke*
+*vegan, vegetarisch, Getränke, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **1,7 Liter**
 

@@ -2,7 +2,7 @@
 
 herrlich deftig
 
-*vegan, vegetarisch, Saucen, Nudeln*
+*vegan, vegetarisch, Saucen, Nudeln, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen**
 

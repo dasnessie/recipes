@@ -1,6 +1,6 @@
 # Leinsamen-Haargel
 
-*vegan, vegetarisch, nonfood*
+*vegan, vegetarisch, nonfood, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **300 ml**
 

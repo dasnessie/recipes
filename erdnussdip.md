@@ -2,7 +2,7 @@
 
 Zu Sommerrollen o.ä.
 
-*vegan, vegetarisch, asiatisch, Saucen*
+*vegan, vegetarisch, asiatisch, Saucen, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **2 Portionen**
 

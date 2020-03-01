@@ -1,6 +1,6 @@
 # Brokkoli mit Kurkuma-Cashew-Reis und Zitronenbutter
 
-*vegan, vegetarisch, Reis*
+*vegan, vegetarisch, Reis, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen**
 

@@ -1,6 +1,6 @@
 # Apfelmuffins
 
-*vegan, vegetarisch, Kuchen*
+*vegan, vegetarisch, Kuchen, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **12 Muffins**
 

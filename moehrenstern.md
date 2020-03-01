@@ -2,7 +2,7 @@
 
 Auflauf aus Polenta und Möhren
 
-*vegan/vegetarisch, vegan, vegetarisch, Auflauf*
+*vegan/vegetarisch, vegan, vegetarisch, Auflauf, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **3 Portionen**
 

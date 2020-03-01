@@ -1,6 +1,6 @@
 # Cranberry-Brownies
 
-*Kuchen, vegan, vegetarisch*
+*Kuchen, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **1/2 Blech**
 

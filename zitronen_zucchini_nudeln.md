@@ -2,7 +2,7 @@
 
 Sommerliches Nudelgericht
 
-*vegan, vegetarisch, Nudeln, Saucen*
+*vegan, vegetarisch, Nudeln, Saucen, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **2 Portionen**
 

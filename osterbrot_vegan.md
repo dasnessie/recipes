@@ -2,7 +2,7 @@
 
 Die lange Gehzeit des Teiges (>11 h) sorgt für ein gleichmäßiges, fluffiges Brot.
 
-*vegan, vegetarisch, Kuchen*
+*vegan, vegetarisch, Kuchen, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **1 Laib**
 

@@ -1,6 +1,6 @@
 # Pizzateig
 
-*vegetarisch, vegan*
+*vegetarisch, vegan, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **3 Bleche**
 

@@ -1,6 +1,6 @@
 # Steckrüben-Wirsing-Eintopf
 
-*vegan, vegetarisch, einfriergeeignet, Eintopf*
+*vegan, vegetarisch, einfriergeeignet, Eintopf, Januar, Februar, September, Oktober, November, Dezember*
 
 **6 Portionen**
 

@@ -1,6 +1,6 @@
 # Kardanoms
 
-*vegan, vegetarisch, Kuchen, Nachtisch*
+*vegan, vegetarisch, Kuchen, Nachtisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **24 Stück**
 

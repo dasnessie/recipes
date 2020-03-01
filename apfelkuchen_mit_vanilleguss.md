@@ -1,6 +1,6 @@
 # Apfelkuchen mit Vanilleguss
 
-*vegetarisch, Kuchen*
+*vegetarisch, Kuchen, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 ---
 - *230 g* Mehl

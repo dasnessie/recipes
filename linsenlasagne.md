@@ -1,6 +1,6 @@
 # Linsenlasagne
 
-*Auflauf, vegetarisch, vegan, Nudeln*
+*Auflauf, vegetarisch, vegan, Nudeln, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen**
 

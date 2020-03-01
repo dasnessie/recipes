@@ -3,7 +3,7 @@
 Als Alternative zu Parmesan.
 Hält sich lange im Kühlschrank und wird mit der Zeit besser.
 
-*vegan, vegetarisch, Käse*
+*vegan, vegetarisch, Käse, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 ---
 

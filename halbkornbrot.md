@@ -2,7 +2,7 @@
 
 Weizenbrot aus 50% Vollkorn- und 50% weißem Weizenmehl
 
-*vegan, vegetarisch, Brot*
+*vegan, vegetarisch, Brot, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **1 Laib, 1,7 kg**
 

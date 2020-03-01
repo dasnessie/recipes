@@ -2,7 +2,7 @@
 
 deftig-lecker, zu Rigatoni oder Penne
 
-*vegan, vegetarisch, Nudeln, Saucen, einfriergeeignet*
+*vegan, vegetarisch, Nudeln, Saucen, einfriergeeignet, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen**
 

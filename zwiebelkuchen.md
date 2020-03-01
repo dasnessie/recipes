@@ -1,6 +1,6 @@
 # Zwiebelkuchen
 
-*vegan, vegetarisch, Auflauf, einfriergeeignet*
+*vegan, vegetarisch, Auflauf, einfriergeeignet, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **3 Portionen**
 

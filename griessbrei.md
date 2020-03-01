@@ -1,6 +1,6 @@
 # Grießbrei mit Früchten und Nüssen
 
-*vegan, vegetarisch, Nachtisch*
+*vegan, vegetarisch, Nachtisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **6 Portionen**
 

@@ -1,6 +1,6 @@
 # vegane Linsenburger
 
-*vegan, vegetarisch*
+*vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen, 8 Patties**
 

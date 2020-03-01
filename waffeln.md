@@ -1,6 +1,6 @@
 # Veganer Waffelteig
 
-*vegan, vegetarisch, Kuchen*
+*vegan, vegetarisch, Kuchen, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **10 Waffeln**
 

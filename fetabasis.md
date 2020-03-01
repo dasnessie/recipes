@@ -2,7 +2,7 @@
 
 Basis für vegane Fetarezepte
 
-*vegan, vegetarisch, Käse*
+*vegan, vegetarisch, Käse, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **200 g**
 

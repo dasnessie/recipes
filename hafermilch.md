@@ -2,7 +2,7 @@
 
 kostet fast nichts, 3,5% Fett
 
-*vegan, vegetarisch, Getränke*
+*vegan, vegetarisch, Getränke, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **1 Liter**
 

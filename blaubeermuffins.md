@@ -1,6 +1,6 @@
 # Blaubeermuffins
 
-*vegan, vegetarisch, Kuchen*
+*vegan, vegetarisch, Kuchen, Juni, Juli, August, September*
 
 **12 Muffins**
 

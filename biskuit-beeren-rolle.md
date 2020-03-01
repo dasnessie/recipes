@@ -1,6 +1,6 @@
 # Vegane Biskuitrolle mit Beerencreme
 
-*vegan, vegetarisch, Kuchen*
+*vegan, vegetarisch, Kuchen, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **1 Blech, 16 Stücke**
 

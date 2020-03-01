@@ -1,6 +1,6 @@
 # Oatmeal Raisin Cookies
 
-*vegan, vegetarisch, Kuchen*
+*vegan, vegetarisch, Kuchen, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **32 Kekse, 2 Bleche**
 

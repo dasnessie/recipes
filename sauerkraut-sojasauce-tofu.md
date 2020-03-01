@@ -1,6 +1,6 @@
 # Aromatisches Sauerkraut mit Sojasoße und Tofu
 
-*vegan, vegetarisch, asiatisch, Reis*
+*vegan, vegetarisch, asiatisch, Reis, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen**
 

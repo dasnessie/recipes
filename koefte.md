@@ -2,7 +2,7 @@
 
 Auch gut als Füllung für Weinblätter geeignet, dann sind sie außerdem besser zum mitnehmen geeignet. 1 Rezept reicht für etwa 200g Weinblätter.
 
-*vegan, vegetarisch*
+*vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 ---
 

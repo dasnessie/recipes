@@ -1,6 +1,6 @@
 # vegane Mayonnaise
 
-*vegan, vegetarisch, Saucen*
+*vegan, vegetarisch, Saucen, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **300 ml**
 

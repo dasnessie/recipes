@@ -2,7 +2,7 @@
 
 Beilage zu Salat, Gegrilltem; oder als Snack
 
-*vegan, vegetarisch*
+*vegan, vegetarisch, Snack, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **12 Muffins, 30 Mini-Muffins**
 

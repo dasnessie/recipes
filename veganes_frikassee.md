@@ -1,6 +1,6 @@
 # Veganes 'Hühnerfrikassee'
 
-*vegan, vegetarisch, Reis, einfriergeeignet*
+*vegan, vegetarisch, Reis, einfriergeeignet, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen**
 

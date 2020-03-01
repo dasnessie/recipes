@@ -1,6 +1,6 @@
 # Rühreigewürz
 
-*vegan, vegetarisch, Gewürz*
+*vegan, vegetarisch, Gewürz, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **25 TL**
 
