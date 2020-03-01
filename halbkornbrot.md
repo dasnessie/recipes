@@ -49,7 +49,7 @@ Den Teig kurz erneut kneten und dann wie gewünscht in Form bringen. Die Oberfl�
 
 In der Zwischenzeit einen großen Dutch Oven im Ofen auf 250 °C vorheizen.
 
-Den Dutch Oven aus dem Ofen nehmen und öffnen. Den Teig aus dem Gärkörbchen in den Deckel des Dutch Oven stürzen und einschneiden. Den Topf aufsetzten und 40 Minuten im Ofen backen. Dabei den Topf nicht öffnen.
+Den Dutch Oven aus dem Ofen nehmen und öffnen. Den Teig aus dem Gärkörbchen in den Deckel des Dutch Oven stürzen und einschneiden. Den Topf aufsetzten und 40 Minuten (2kg Teig/ganzes Rezept; 1kg Teig/halbes Rezept: 20 Minuten) im Ofen backen. Dabei den Topf nicht öffnen. 
 
 Den Topf entfernen, die Ofentemperatur auf 230 °C reduzieren und das Brot im Deckel etwa 20 Minuten weiterbacken, bis es dunkelbraun ist. Wenn es innen etwa 90 °C warm ist, ist es fertig.
 
