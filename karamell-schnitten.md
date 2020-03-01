@@ -13,16 +13,16 @@ nach der Binging with Babish-Folge
 - *100 g* brauner Zucker
 - *2 TL* Vanilleextrakt
 - *2 TL* Salz
-- *240 g* Alsan
+- *240 g* Alsan (vegane Butter)
 - *700 g* Mehl
 
 ## Karamell
 
-- *115 g* Alsan
-- *330 g* Cream of Coconut
+- *115 g* Alsan (vegane Butter)
+- *330 g* Cream of Coconut (Cocktailzutaten)
 - *200 g* brauner Zucker
-- *150 ml* Karamellsirup
-- *150 ml* Pflanzensahne
+- *150 ml* heller Sirup, z.B. von Grafschafter
+- *150 ml* (Pflanzen-)Sahne
 - *1 TL* Salz
 
 ## Schokolade
@@ -52,3 +52,5 @@ Sobald die Temperatur erreicht ist, Masse in die Form geben und gleichmäßig au
 Die restliche Schokolade über einer Schale mit heißem Wasser schmelzen. Sie sollte dabei nicht heißer als 49 °C werden. Von der Hitze nehmen und restliche Schokolade zugeben. Rühren, bis die Schokolade komplett geschmolzen ist und eine Temperatur von etwa 28 °C hat. Auf das erkaltete Karamell geben und fest werden lassen, etwa im Kühlschrank.
 
 In die gewünschte Größe schneiden und servieren.
+
+Im Kühlschrank aufbewahren, hält sich so mindestens eine Woche.
