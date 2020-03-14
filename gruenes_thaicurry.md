@@ -1,6 +1,6 @@
 # Grünes Thaicurry
 
-*vegan, vegetarisch, asiatisch, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, asiatisch, Curry, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen**
 
