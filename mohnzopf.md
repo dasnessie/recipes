@@ -1,7 +1,5 @@
 # Mohn-Marzipan-Zopf
 
-Kommentar
-
 *vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember, Kuchen*
 
 **1 Kranz, 2 Zopf**
