@@ -18,6 +18,7 @@
 
 - *200 ml* Pflanzenmilch
 - *400 g* Marzipan
+- *50 ml* Rum
 - *250 g* Mohn, nach Wunsch gemahlen
 - *40 g* vegane Margarine
 - *60 g* Zucker
