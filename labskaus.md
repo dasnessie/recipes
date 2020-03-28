@@ -23,7 +23,7 @@
 
 ---
 
-Zwiebel scälen und würfeln. Vom Tofu pro Portion 2wei Streifen für die Garnitur abschneiden, Rest hacken. Kartoffeln schälen, waschen und würfeln.
+Zwiebel schälen und würfeln. Vom Tofu pro Portion 2wei Streifen für die Garnitur abschneiden, Rest hacken. Kartoffeln schälen, waschen und würfeln.
 
 Öl in Topf erhitzen, Tofustreifen darin braun anbraten. Tofu herausnehmen und zur Seite stellen.
 
