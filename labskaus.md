@@ -14,7 +14,7 @@
 - Salz
 - *1 TL* Gemüsebrühe
 - *1* Lorbeerblatt
-- *2* Gewürzgurken
+- *6* Gewürzgurken
 - *200 g* rote Bete, sauer eingelegt
 - Zucker
 - Essig
@@ -29,6 +29,6 @@ Zwiebel scälen und würfeln. Vom Tofu pro Portion 2wei Streifen für die Garnit
 
 Zwiebeln und Tofuwürfel im Öl anbraten. Wasser, Kartoffeln, Salz, Gemüsebrühe und Lorbeerblatt zugeben, aufkochen, und ca. 15 Minuten kochen, bis die Kartoffeln gar sind.
 
-Lorbeerblatt entfernen. Alles mit einem Kartoffelstampfer grob zerstampfen. Gurke und Rote Bete hacken und unterheben. Mit Zucker, Salz, Essig, Senf und Pfeffer abschmecken.
+Lorbeerblatt entfernen. Alles mit einem Kartoffelstampfer grob zerstampfen. Die Hälfte der Gurken und Rote Bete hacken und unterheben. Mit Zucker, Salz, Essig, Senf und Pfeffer abschmecken.
 
-Mit gebratenen Tofustreifen und Essiggurkenstreifen garniert servieren.
+Mit gebratenen Tofustreifen und restlichen Essiggurkenstreifen garniert servieren.
