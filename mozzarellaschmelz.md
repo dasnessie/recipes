@@ -21,7 +21,7 @@
 
 Cashews in ausreichend Wasser etwa eine halbe Stunde köcheln, bis sie weich sind. Flohsamenschalen mit etwas Wasser verrühren.
 
-Wasser, Essig, Agavendicksaft, Salz und Kokosfett im Mixer homogen pürieren. Cashews abgießen und unterpürieren, biss die Masse homogen ist. Alle trockenen Zutaten einzeln zugeben und unterpürieren, dann die nächste Zutat zugeben.
+Wasser, Essig, Agavendicksaft, Salz und Kokosfett im Mixer homogen pürieren. Cashews abgießen und unterpürieren, bis die Masse homogen ist. Flohsamenmischung zugeben und ebenfalls unterpürieren. Alle trockenen Zutaten einzeln zugeben und unterpürieren, dann die nächste Zutat zugeben.
 
 Die Masse in einen kleinen Topf umfüllen und unter ständigem Rühren mit einem Schneebesen zum kochen bringen. Kurz aufkochen.
 

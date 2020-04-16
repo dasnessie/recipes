@@ -26,7 +26,7 @@ Alle Zutaten bis auf die Margerine zu einem gleichmäßigen Teig verkneten.
 
 Die Margerine würfeln und nach und nach unterkneten, bis sie gleichmäßig verteilt ist.
 
-Den Teig abdecken und über Nacht im Kühlschrank abdecken.
+Den Teig abdecken und über Nacht im Kühlschrank gehen lassen.
 
 Den Teig kurz durchkneten und bei Zimmertemperatur weitere zwei Stunden gehen lassen.
 

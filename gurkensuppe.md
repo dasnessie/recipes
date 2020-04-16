@@ -31,4 +31,4 @@ In der Zwischenzeit Öl in Pfanne erhitzen und Tofu darin knusprig anbraten. Mit
 
 Dill waschen und hacken.
 
-Weiter für die Suppe Hitze reduzieren, wenn das Gemüse gar ist. Suppe fein pürieren. Sahne unterrühren. Kresse und Dill zugeben und Suppe mit Muskat, Zitronensaft, Salz unf Pfeffer abschmecken.
+Weiter für die Suppe Hitze reduzieren, wenn das Gemüse gar ist. Suppe fein pürieren. Sahne unterrühren. Tofu, Kresse und Dill zugeben und Suppe mit Muskat, Zitronensaft, Salz unf Pfeffer abschmecken.
