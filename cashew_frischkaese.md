@@ -14,7 +14,7 @@
 - *1 EL* Apfelessig
 - *1 TL* Salz
 - *4 TL* Agar-Agar
-- *125 ml* Waser
+- *125 ml* Wasser
 - *1 Bund* Schnittlauch
 
 ---
