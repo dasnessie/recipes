@@ -10,7 +10,7 @@ Ganz einfach und super lecker
 
 - *200 g* Naturtofu
 - Sojasoße
-- Semmelbrösel
+- Paniermehl
 - Salz
 - Pfeffer
 
