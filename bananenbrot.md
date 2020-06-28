@@ -6,15 +6,15 @@
 
 ---
 
-- *500 ml* Weizenvollkornmehl
+- *350 g* Weizenvollkornmehl
 - *3 TL* Backpulver
 - *1.5 TL* Salz
-- *125 ml* brauner Zucker
+- *125 g* brauner Zucker
 - *125 ml* neutrales Öl
 - *125 ml* Pflanzendrink
 - *4* reife Bananen
-- *125 ml* gemahlene Nüsse
-- *1 Tafel* vegane Zartbitterschokolade (optional)
+- *100 g* gemahlene Nüsse
+- *100 g* vegane Zartbitterschokolade (optional)
 - Fett für die Form
 
 ---
