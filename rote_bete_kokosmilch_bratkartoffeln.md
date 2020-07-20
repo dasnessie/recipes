@@ -39,7 +39,7 @@ Die Kartoffeln waschen, nach Bedarf schälen und in dünne Scheiben schneiden (e
 
 Ingwer schälen und reiben. Chili waschen und fein würfeln. Rote Bete abtropfen lassen, halbieren und in Spalten schneiden.
 
-Öl in Topf erhitzen. Chili, Kümmel, Kreuzkümmel, Piment und Zimt darin anbraten. Gemüsebrühe zugebe und einrühren.
+Öl in Topf erhitzen. Chili, Kümmel, Kreuzkümmel, Piment und Zimt darin anbraten. Gemüsebrühe zugeben und einrühren.
 
 Speisestärke in kaltem Wasser auflösen. Mit Kokosmilch zu den Gewürzen geben, aufkochen, salzen und etwas köcheln lassen. Rote Bete zugeben und warm halten.
 
