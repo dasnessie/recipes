@@ -6,8 +6,8 @@ A traditional european recipe, as served in Austria, Hungary and Germany. Serve 
 
 ---
 
-- *1 kg* Cross-Cut Shanks beef, or substitute with lamb
-- *50 g* Lard
+- *1 kg* cross-cut shanks beef, or substitute with lamb
+- *50 g* lard
 - *50 ml* neutral frying oil
 - *1 kg* white or yellow onions
 - *5 g* sugar
