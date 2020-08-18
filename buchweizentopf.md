@@ -22,7 +22,7 @@
 
 ---
 
-Zwiebeln schälen und in feine Streifen schneiden.Knoblauch schälen und klein würfeln. Pilze in Scheiben schneiden. Rote Bete ca. 1 cm groß würfeln.
+Zwiebeln schälen und in feine Streifen schneiden. Knoblauch schälen und klein würfeln. Pilze in Scheiben schneiden. Rote Bete ca. 1 cm groß würfeln.
 
 Buchweizen in trockenem großen Topf anrösten, bis er duftet. Mit Wasser aufgießen, salzen und im halb offenen Topf ca. 15 Minuten weich kochen. Offenen Topf für einige Minuten mit sauberem Geschirrhandtuch abdecken, dadurch sollte der Buchweizen etwas krümelig werden.
 
