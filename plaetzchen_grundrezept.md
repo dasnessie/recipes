@@ -4,11 +4,11 @@ einfache Plätzchen zum ausstechen
 
 *Kuchen, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
-**2 Bleche**
+**4 Bleche**
 
 ---
 
-- *500 g Mehl*
+- *500 g* Mehl
 - *1/2 TL* Backpulver
 - *60 g* Zucker
 - *2 Prisen* Salz
