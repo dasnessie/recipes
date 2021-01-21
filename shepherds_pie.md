@@ -45,6 +45,6 @@ Für den Kartoffelbrei Kartoffeln schälen und in Salzwasser weich kochen. Abgie
 
 Für die Linsenfüllung Zwiebel schälen und würfeln. Suppengemüse putzen und würfeln. Stärke mit etwas Wasser vermischen und zur Seite stellen.
 
-Öl in Topf erhitzen. Zwiebel und Suppengemüse anbraten. Tomatenmark zugeben. Linsen, restliches Wasser, Lorbeerblatt, Mais, Bohnenkraut, Zimt, Thymian, Oregano zugeben und aufkochen. Brühe mit Marmite, Worchestersauce, Pfeffer und Salz abschmecken. Linsen kochen, bis sie weich sind und sie das meiste Wasser aufgenommen haben. Stärke zugeben und aufkochen. Mais unterrühren.
+Öl in Topf erhitzen. Zwiebel und Suppengemüse anbraten. Tomatenmark zugeben. Linsen, restliches Wasser, Lorbeerblatt, Bohnenkraut, Zimt, Thymian, Oregano zugeben und aufkochen. Brühe mit Marmite, Worchestersauce, Pfeffer und Salz abschmecken. Linsen kochen, bis sie weich sind und sie das meiste Wasser aufgenommen haben. Stärke zugeben und aufkochen. Mais unterrühren.
 
 Linsenmasse in eine Auflaufform geben. Kartoffelbrei darauf verteilen. Im Ofen bei 200 °C Umluft etwa 20 Minuten backen, bis der Auflauf braun ist. Mit Petersilie bestreuen, etwa zehn Minuten abkühlen lassen (sonst ist der Auflauf sehr flüssig) und servieren.
