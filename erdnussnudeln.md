@@ -4,13 +4,13 @@ asiatisch inspiriert
 
 *vegan, vegetarisch, Nudeln, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
-**3 Portionen**
+**2 Portionen**
 
 ---
 
-- *300 g* Gemüse nach Wahl (z.B. Kohl, Paprika, Frühlingszwiebeln)
+- *200 g* Gemüse nach Wahl (z.B. Kohl, Paprika, Frühlingszwiebeln)
 - *6* Zehen Knoblauch
-- *500 g* Nudeln nach Wahl (Spaghetti oder Asianudeln gehen gut)
+- *250 g* Nudeln nach Wahl (Spaghetti oder Asianudeln gehen gut)
 - *50 g* Erdnüsse, optional
 
 ## Soße
@@ -34,4 +34,4 @@ Die Nudeln al dente kochen. Das Gemüse in einem großen Topf anbraten, nach ein
 
 Alle Zutaten für die Soße zusammen pürieren. 
 
-Nudeln abgießen und zum Gemüse geben, Soße zugeben und vermischen. Kurz aufkochen und servieren.
+Nudeln abgießen und zum Gemüse geben, Soße zugeben und vermischen. Kurz aufkochen, mit Erdnüssen bestreuen und servieren.
