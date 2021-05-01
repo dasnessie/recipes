@@ -42,8 +42,6 @@ Wenn das Wasser kocht, den Spätzlebereiter auf den Topf stellen. Teig hineingeb
 
 Die Spätzle schwimmen an der Oberfläche, sobald sie fertig sind.
 Die Spätzle mit einem Schaumlöffel in ein Sieb geben, kalt abspülen, abtropfen lassen und dann wieder in den Topf geben.
-
-
 ## Soße
 
 Knoblauch fein würfeln. Zwiebeln fein würfeln. Frühlingszwiebeln in Ringe schneiden, dabei weißen und grünen Teil trennen. 

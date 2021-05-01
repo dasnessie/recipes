@@ -34,4 +34,4 @@ Den Knoblauch schälen und reiben. Mit der restlichen Gewürzmischung zum Öl de
 
 Den Ofen auf 230°C Ober/Unterhitze vorheizen. Die gehackten Tomaten zum Teig geben und unterkneten. 
 
-Den Teig zu x gleich großen Kugeln formen, wobei x die gewünschte Anzahl Muffins ist. In Muffinformen legen, mit etwas Marinade begießen und im Ofen ca. 10 Minuten für normale Muffins bzw. 8 Minuten für Mini-Muffins backen, bis sie leicht braun sind.
+Den Teig zu x gleich großen Kugeln formen, wobei x die gewünschte Anzahl Muffins ist. In Muffinformen legen, mit etwas Marinade begießen und im Ofen ca. 15 Minuten für normale Muffins bzw. 8 Minuten für Mini-Muffins backen, bis sie leicht braun sind.
