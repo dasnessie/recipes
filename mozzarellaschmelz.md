@@ -25,4 +25,4 @@ Wasser, Essig, Agavendicksaft, Salz und Kokosfett im Mixer homogen pürieren. Ca
 
 Die Masse in einen kleinen Topf umfüllen und unter ständigem Rühren mit einem Schneebesen zum kochen bringen. Kurz aufkochen.
 
-Der Käse eignet sich gut zum Üerbacken an Stelle von Mozzarella, etwa auf Pizza, Aufläufen und in Grilled Cheese Sandwiches.
+Der Käse eignet sich gut zum Überbacken an Stelle von Mozzarella, etwa auf Pizza, Aufläufen und in Grilled Cheese Sandwiches.
