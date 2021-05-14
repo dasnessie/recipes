@@ -12,7 +12,7 @@
 - *0.75 TL* MSG
 - *2 EL* dunkle Sojasauce
 - *1 Prise* Ingwer getrocknet
-- *1 Prise* Konblauchpulver
+- *1 Prise* Knoblauchpulver
 - *2 Prise* Salz
 
 ---
