@@ -15,7 +15,7 @@
 - *1 EL* Agar-agar
 - *2,5 EL* Tapiokastärke
 - *1 TL* Salz
-- *70 g* rafiniertes Kokosfett
+- *70 g* raffiniertes Kokosfett
 
 ---
 

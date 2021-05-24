@@ -6,11 +6,11 @@ Gewürzmischung für ein Heißgetränk, schmeckt aber auch super in Porridge.
 
 ---
 
-- *7 EL*  Kurkuma
-- *3 EL* Zimt 
-- *1 tsp* gemahlener schwarzer Pfeffer
-- *5 tsp* Ingwer
-- *1 tsp* Cayennepfeffer
+- *7 EL* Kurkuma
+- *3 EL* Zimt
+- *1 TL* gemahlener schwarzer Pfeffer
+- *5 TL* Ingwer
+- *1 TL* Cayennepfeffer
 
 ---
 

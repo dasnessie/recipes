@@ -16,7 +16,7 @@ Ein sehr leckeres Mittagessen, das in knapp 30 Minuten auf dem Tisch steht! Fris
 - *1 EL* Butter
 - *1 TL* Rohrohrzucker
 - Salz
-- schwarzer Pfeffer*
+- schwarzer Pfeffer
 - *1 Bund*  Dill (30 g = 1 Bund)
 - *2-3 Stiele* Pfefferminze (alternativ: 2-3 Stiele = ¼ TL getrocknete Minze)
 - *200 g* [Feta](feta.md)
