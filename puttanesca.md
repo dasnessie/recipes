@@ -31,4 +31,4 @@ Inzwischen Spaghetti in ausreichend Salzwasser bissfest garen. Oliven und Kapern
 
 Oliven und Kapern zur Soße geben und warm werden lassen. 
 
-Nudeln in Sieb abgießen, dabei etwa eine Tasse Nudelwasser auffangen. Nudeln tropfnass zurück in den Topf geben, Soße zugeben. Wenn die Soße nicht gut an den Nudeln haftet, etwas Nudelwasser unterrühren und aufkochen. Mit Salz unf Pfeffer abschmecken, auf Teller portionieren und mit Petersilie und Parmesan bestreut servieren.
+Nudeln in Sieb abgießen, dabei etwa eine Tasse Nudelwasser auffangen. Nudeln tropfnass zurück in den Topf geben, Soße zugeben. Wenn die Soße nicht gut an den Nudeln haftet, etwas Nudelwasser unterrühren und aufkochen. Mit Salz und Pfeffer abschmecken, auf Teller portionieren und mit Petersilie und Parmesan bestreut servieren.
