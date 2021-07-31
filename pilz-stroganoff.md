@@ -13,7 +13,7 @@ herrlich deftig
 - *80 g* Zwiebeln
 - *100 g* Essiggurken
 - Olivenöl
-- *2 EL* Butter oder Magerine
+- *2 EL* Butter oder Margarine
 - Salz
 - Pfeffer
 - *125 ml* trockener Rotwein
@@ -22,7 +22,7 @@ herrlich deftig
 - *200 g* (Pflanzen-) Sahne
 - *1.5 TL* Dijonsenf
 - *1.5 TL* Speisestärke
-- Worchestersoße
+- Worcestersoße
 - *500 g* Bandnudeln
 - *1 Bund* Schnittlauch
 
@@ -34,7 +34,7 @@ Etwas Öl und Butter in Pfanne erhitzen, Pilze darin anbraten. Aus der Pfanne ne
 
 Mehr Öl in der Pfanne erhitzen. Zwiebeln, Paprika und Gürkchen darin anbraten. Mit Rotwein ablöschen und einkochen lassen. Paprikapulver unterrühren. Wasser und Sahne zugeben, unterrühren, Pilze zugeben, mit Salz und Pfeffer würzen und ca. 10 Minuten köcheln lassen.
 
-Stärke mit etwas kaltem Wasser verrühren, zugeben, aufkochen lassen. Senf unterrühren und Soße mit Worchestersoße, Salz, Pfeffer und Senf abschmecken.
+Stärke mit etwas kaltem Wasser verrühren, zugeben, aufkochen lassen. Senf unterrühren und Soße mit Worcestersoße, Salz, Pfeffer und Senf abschmecken.
 
 Nudeln nach Packungsangabe al dente garen. Schnittlauch in feine Röllchen schneiden.
 

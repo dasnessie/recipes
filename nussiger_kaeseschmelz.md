@@ -15,7 +15,7 @@ Entweder sofort verwenden oder abgedeckt im Kühlschrank aufbewahren. Wird beim 
 - *2 TL* helle Misopaste
 - *1 EL* Hefeflocken
 - *1 EL* trockener Weißwein
-- *0.5 EL* Tahin
+- *0.5 EL* Tahini
 - *0.25 TL* Salz
 - *0.25 TL* Guaran (guar gum)
 - *0.125 TL* gemahlener Koriander

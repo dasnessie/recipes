@@ -8,7 +8,7 @@
 
 - *250 g* Kichererbsen (aus der Dose)
 - *60 ml* Zitronensaft
-- *60 ml* Tahin
+- *60 ml* Tahini
 - *1* Knoblauchzehe
 - *30 ml* Olivenöl
 - *0.5 TL* Kreuzkümmel
@@ -18,7 +18,7 @@
 
 ---
 
-Zitronensaft, Tahin, Knoblauch, Olivenöl, Kreuzkümmel, Salz im Standmixer vermischen. 
+Zitronensaft, Tahini, Knoblauch, Olivenöl, Kreuzkümmel, Salz im Standmixer vermischen. 
 
 Kichererbsen in 100g-Portionen zugeben und jeweils unterpürieren. Nach Bedarf Wasser hinzufügen, um eine glatte Konsistenz zu erhalten.
 

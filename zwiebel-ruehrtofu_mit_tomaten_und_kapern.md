@@ -20,4 +20,4 @@
 
 Zwiebeln schälen, halbieren und in feine Streifen schneiden. Tomaten hacken. Kapern auf Wunsch grob hacken.
 
-Zwiebeln in Öl leicht braun braten. Tofurührei zugeben. Tomaten, Kapern und Oregano zugeben, vermischen und alles gleichmäßig warm werden lassen. Mit ewas Muskat und Kreuzkümmel abschmecken und auf Brot servieren.
+Zwiebeln in Öl leicht braun braten. Tofurührei zugeben. Tomaten, Kapern und Oregano zugeben, vermischen und alles gleichmäßig warm werden lassen. Mit etwas Muskat und Kreuzkümmel abschmecken und auf Brot servieren.

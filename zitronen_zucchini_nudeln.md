@@ -1,4 +1,4 @@
-# Zitronennudeln mit Zuccini
+# Zitronennudeln mit Zucchini
 
 Sommerliches Nudelgericht
 
@@ -17,7 +17,7 @@ Sommerliches Nudelgericht
 - *1 TL* Estragon, getrocknet
 - Salz
 - Öl
-- *300 g* Vollkornnudeln, zB Farfalle
+- *300 g* Vollkornnudeln, zB Fafalle
 
 ---
 

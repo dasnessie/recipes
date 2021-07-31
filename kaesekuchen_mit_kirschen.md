@@ -30,7 +30,7 @@ Für den Teig das Mehl in eine Schüssel geben und in die Mitte eine Kuhle drüc
 
 Alle Zutaten mit dem Messer gründlich durchhacken. Die so entstandenen Brösel rasch mit kühlen Händen durchwalken. Den Teig zu einer Kugel formen, in Folie wickeln und kalt stellen.
 
-Für die Füllung den Quark mit dem Zucker, der Zitronenschale, dem Zirtonensaft, den Eiern, dem Fett und dem Mehl verrühren.
+Für die Füllung den Quark mit dem Zucker, der Zitronenschale, dem Zitronensaft, den Eiern, dem Fett und dem Mehl verrühren.
 
 Knapp 2/3 des Teiges ausrollen und eine eingefettete Springform damit auslegen. Die Mandeln auf dem Boden verteilen. Die abgetropften Kirschen darauf verteilen und die Quarkmasse darüber geben.
 

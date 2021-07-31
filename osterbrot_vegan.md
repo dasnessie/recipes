@@ -13,7 +13,7 @@ Die lange Gehzeit des Teiges (>11 h) sorgt für ein gleichmäßiges, fluffiges B
 - *60 g* Zucker
 - *1 Würfel* frische Hefe
 - *200 g* Hafermilch, lauwarm
-- *125 g* vegane Margerine, z.B. Alsan, Zimmertemperatur
+- *125 g* vegane Margarine, z.B. Alsan, Zimmertemperatur
 - *0.5* Zitrone, Schale davon
 - *50 g* Rosinen, eingeweicht
 - *50 g* Orangeat
@@ -22,9 +22,9 @@ Die lange Gehzeit des Teiges (>11 h) sorgt für ein gleichmäßiges, fluffiges B
 
 Mehl und Salz in eine Schüssel sieben. Hefe zerbröckeln und mit dem Zucker verrühren. Dabei löst sich die Hefe auf und wird flüssig.
 
-Alle Zutaten bis auf die Margerine zu einem gleichmäßigen Teig verkneten.
+Alle Zutaten bis auf die Margarine zu einem gleichmäßigen Teig verkneten.
 
-Die Margerine würfeln und nach und nach unterkneten, bis sie gleichmäßig verteilt ist.
+Die Margarine würfeln und nach und nach unterkneten, bis sie gleichmäßig verteilt ist.
 
 Den Teig abdecken und über Nacht im Kühlschrank gehen lassen.
 

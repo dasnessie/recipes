@@ -19,16 +19,16 @@ Auch gut als Füllung für Weinblätter geeignet, dann sind sie außerdem besser
 - Pfeffer
 - Paprika
 - Kreuzkümmel
-- Cayennepfefer
+- Cayennepfeffer
 
 ---
 
 Die roten Linsen in der doppelten Menge Wasser gar kochen. Das Wasser sollte fast komplett aufgesogen sein.
 
-Zwiebel, Konblauch und Petersilie sehr fein hacken.
+Zwiebel, Knoblauch und Petersilie sehr fein hacken.
 
 Bulgur zu den Linsen geben und bei Bedarf etwas heißes Wasser zugeben, sodass das Bulgur nicht mehr trocken ist. Zugedeckt 15 Minuten quellen lassen, dabei zwischendurch die Konsistenz prüfen und bei Bedarf Wasser zugeben.
 
-Zwiebeln und Knoblauch in reichlich Olivenöl glasig braten. Tomaten- und Paprikamark zugeben, kurz anrösten. Dann mit Salz, Pfeffer, Zitronensaft, Paprika, Kreuzkümmel und Cayenepfeffer sowie nach Wunsch weiteren Gewürzen scharf abschmecken und mit Petersilie zu Bulgurmasse geben.
+Zwiebeln und Knoblauch in reichlich Olivenöl glasig braten. Tomaten- und Paprikamark zugeben, kurz anrösten. Dann mit Salz, Pfeffer, Zitronensaft, Paprika, Kreuzkümmel und Cayennepfeffer sowie nach Wunsch weiteren Gewürzen scharf abschmecken und mit Petersilie zu Bulgurmasse geben.
 
 Aus der Masse Köfte formen.

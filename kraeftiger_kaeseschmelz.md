@@ -1,6 +1,6 @@
 # kräftiger Käseschmelz
 
-Als Alternative zu Berggkäse wie zB Gruyère.
+Als Alternative zu Bergkäse wie zB Gruyère.
 Entweder sofort verwenden oder abgedeckt im Kühlschrank aufbewahren. Wird beim Abkühlen fester und klebrig, kann durch Erhitzen wieder flüssiger gemacht werden.
 
 *vegan, vegetarisch, Käse, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*

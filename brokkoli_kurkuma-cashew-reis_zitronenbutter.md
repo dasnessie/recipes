@@ -17,7 +17,7 @@
 - *100 g* gesalzene und geröstete Cashewkerne (oder Erdnüsse)
 - Salz
 - *1* Knoblauchzehe
-- *2 EL* Magerine
+- *2 EL* Margarine
 - *1 kg* Brokkoli, frisch oder TK
 
 ---
@@ -26,7 +26,7 @@ Zwiebeln schälen und fein würfeln. Chili waschen, längs halbieren, entkernen 
 
 Für den Reis Öl in Topf erhitzen, Zwiebeln und Chili darin anschwitzen. Kurkuma zugeben, kurz mit anschwitzen und mit Brühe ablöschen. Reis, Rosinen und Zitronenschalenstreifen zugeben. Aufkochen, 10 Minuten bei kleiner Hitze köcheln lassen, vom Herd nehmen und nachquellen lassen. Zitronenschale herausnehmen. 2/3 der Cashews unter den Reis mischen und mit Salz abschmecken.
 
-Für die Zitronenbutter Magerine in Topf zerlassen, Knoblauch zugeben, kurz anschwitzen, Zitronenschalenabrieb zugeben, gut unterrühren und warm halten.
+Für die Zitronenbutter Margarine in Topf zerlassen, Knoblauch zugeben, kurz anschwitzen, Zitronenschalenabrieb zugeben, gut unterrühren und warm halten.
 
 Den Brokkoli in in ausreichend Salzwasser bissfest blanchieren. In Sieb abtropfen lassen.
 

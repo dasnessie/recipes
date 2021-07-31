@@ -12,12 +12,12 @@ einfache Plätzchen zum ausstechen
 - *1/2 TL* Backpulver
 - *60 g* Zucker
 - *2 Prisen* Salz
-- *250 g* Margerine
+- *250 g* Margarine
 - *100 ml* Pflanzenmilch, nach Bedarf
 
 ---
 
-Mehl und Backpulver in eine Schüssel sieben. Zucker und Salz zugeben und unterrühren. Margerine zugeben.
+Mehl und Backpulver in eine Schüssel sieben. Zucker und Salz zugeben und unterrühren. Margarine zugeben.
 
 Teig kneten, bis er gleichmäßig ist. Nach Bedarf die Pflanzenmilch unterkneten, bis ein glatter, nur leicht bröseliger Teig entsteht.
 

@@ -23,7 +23,7 @@
 
 ---
 
-![eine fertige Foccacia](pics/focaccia.jpg)
+![eine fertige Focaccia](pics/focaccia.jpg)
 
 Mehl, Salz und Hefe mischen. Wasser schluckweise zugeben ud mit den Knethaken des Handrührgeräts etwa 5 Minuten zu einem glatten Teig kneten.
 
@@ -35,6 +35,6 @@ In der Zwischenzeit die Cocktailtomaten der Länge nach halbieren. Den Knoblauch
 
 Den Teig mit Olivenöl beträufeln. Mit den Fingerspitzen kleine Dellen in den Teig drücken. Die Tomatenhälften mit der Schnittfläche nach oben, den Knoblauch und die Kapern gleichmäßig auf dem Teig verteilen. Mit Meersalzflocken bestreuen. Erneut mit Olivenöl beträufeln.
 
-Im vorgeheitzten Backofen bei 230 °C Ober-/Unterhitze 20 - 25 Minuten goldbraun backen, dabei die Form nach der Hälfte der Zeit umdrehen, damit die Focaccia gleichmäßig bräunt. 
+Im vorgeheizten Backofen bei 230 °C Ober-/Unterhitze 20 - 25 Minuten goldbraun backen, dabei die Form nach der Hälfte der Zeit umdrehen, damit die Focaccia gleichmäßig bräunt. 
 
 Mit mehr Olivenöl servieren.

@@ -23,7 +23,9 @@ Persisches Auberginengericht, dazu Minzjoghurt
 - Paprika rosenscharf
 - Kurkuma
 - Zimt
-- Kreuzkümmel
+- Kreuzkümmel354.17 g kleine Tomaten
+*2 EL Agavendicksaft o.ä.
+5.67 EL Öl
 - Koriander
 
 ## Minzjoghurt
@@ -36,11 +38,11 @@ Persisches Auberginengericht, dazu Minzjoghurt
 
 ---
 
-Zunächst die Auberginen rundherum mit einer Gabel einstechen, mit Öl einreiben und im vorgeheitzten Ofen bei 200 °C Umluft ca 35-45 Minuten im Ofen rösten, bis sie weich ist.
+Zunächst die Auberginen rundherum mit einer Gabel einstechen, mit Öl einreiben und im vorgeheizten Ofen bei 200 °C Umluft ca 35-45 Minuten im Ofen rösten, bis sie weich ist.
 
 Inzwischen den Minzjoghurt zubereiten. Minze waschen und hacken. Joghurt mit Minze mischen und mit Salz, Zucker und Zitronensaft abschmecken.
 
-Den Knoblauch hacken. Den Tofu fein zerkrümmeln und mit dem Rüheigewürz vermischen.
+Den Knoblauch hacken. Den Tofu fein zerkrümeln und mit dem Rühreigewürz vermischen.
 
 Die fertige Aubergine aus dem Ofen nehmen. Haut abziehen, Fruchtfleisch in eine Schale geben und mit einer Gabel gut zerdrücken.
 

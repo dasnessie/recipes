@@ -33,7 +33,7 @@ So fluffy!
 
 ---
 
-Die Butter für die Füllung aus dem Kühlschrank nehemen, damit sie weich wird.
+Die Butter für die Füllung aus dem Kühlschrank nehmen, damit sie weich wird.
 
 ## Teig
 

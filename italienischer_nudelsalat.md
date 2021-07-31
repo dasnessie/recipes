@@ -23,7 +23,7 @@
 
 Die Nudeln in Salzwasser kochen, abgießen, heiß abspülen und auskühlen lassen. 
 
-Die Cocktailtomaten in nicht zu kleine Stücke scneiden, die getrockneten Tomaten recht fein hacken, den Feta zwischen den Fingern zerbröseln und alles zu den Nudeln gegeben.
+Die Cocktailtomaten in nicht zu kleine Stücke schneiden, die getrockneten Tomaten recht fein hacken, den Feta zwischen den Fingern zerbröseln und alles zu den Nudeln gegeben.
 
 Für das Dressing die Zwiebel grob würfeln. Zwiebel, Knoblauch, Basilikum, Petersilie, Olivenöl, Balsamico und Öl von getrockneten Tomaten pürieren.
 

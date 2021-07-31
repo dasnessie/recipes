@@ -12,7 +12,7 @@
 - *1 TL* Agavendicksaft
 - *1 EL* Agar-agar
 - *2,5 EL* Tapiokastärke
-- *70 g* rafiniertes Kokosfett
+- *70 g* raffiniertes Kokosfett
 - *3 EL* helle Misopaste
 - *3 EL* Hefeflocken
 - *2.25 TL* Milchsäure (alternativ Apfelessig, dann am Ende mit Essig abschmecken)

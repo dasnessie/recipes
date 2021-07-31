@@ -24,7 +24,7 @@ Beilage zu Salat, Gegrilltem; oder als Snack
 
 ---
 
-Cayenepfeffer, Räucherpaprika, Thymian, Majoran und Rosmarin mischen.
+Cayennepfeffer, Räucherpaprika, Thymian, Majoran und Rosmarin mischen.
 
 Mehl, Trockenhefe, Zucker, Salz, gefrorene Kräuter und die Hälfte der Gewürzmischung in einer großen Schüssel vermischen. Lauwarmes Wasser zugeben und kneten, bis sich ein homogener Teig ergibt. An einem warmen Ort ca. 30 Minuten gehen lassen.
 

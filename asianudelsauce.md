@@ -7,7 +7,7 @@
 ---
 
 - *2 TL* Tamarind-Paste
-- *1 TL* Worchestersauce
+- *1 TL* Worcestersauce
 - *6 EL* Simple Syrup (1 Teil Wasser gelöst in 1 Teil Zucker)
 - *0.75 TL* MSG
 - *2 EL* dunkle Sojasauce

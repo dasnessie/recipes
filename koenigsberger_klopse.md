@@ -42,12 +42,12 @@ Brötchen grob würfeln und in lauwarmem Wasser einweichen.
 
 Petersilie fein hacken. Zwiebeln schälen und fein würfeln. Sojamehl mit doppelter Menge kaltem Wasser glatt verrühren.
 
-Eingeweichtes Brötchen ausdrücken. Mit Grünkern, Petersilie, Sojamehl, Zwiebeln und Panniermehl sorgfältig zu einem gleichmäßigen Teig verkneten. Mit Salz und Pfeffer würzen. Mit befeuchteten Händen etwa 16 Klopse (4 - 5 cm Durchmesser) formen.
+Eingeweichtes Brötchen ausdrücken. Mit Grünkern, Petersilie, Sojamehl, Zwiebeln und Paniermehl sorgfältig zu einem gleichmäßigen Teig verkneten. Mit Salz und Pfeffer würzen. Mit befeuchteten Händen etwa 16 Klopse (4 - 5 cm Durchmesser) formen.
 
 In großem Topf Salzwasser aufkochen. Hitze reduzieren und Klopse im Wasser 10 bis 15 Minuten gar ziehen lassen (nicht kochen).
 
 ## Soße
 
-Für die Soße Margarine in Topf schmelzen. Mehl mit Schneebesen unterrühren und kurz anschwitzen. Schluckweise Weißwein zugeben, jeweils glattrühren und aufkochen. Ebenso Gemüsebrühe und Pflanzensahne zugeben. Kapern, Zitronensaft, Muskat, Piment und Lobeerblatt zugeben und etwa 5 Minuten köcheln lassen. Stärke mit kaltem Wasser verrühren, zur Soße geben und aufkochen.
+Für die Soße Margarine in Topf schmelzen. Mehl mit Schneebesen unterrühren und kurz anschwitzen. Schluckweise Weißwein zugeben, jeweils glattrühren und aufkochen. Ebenso Gemüsebrühe und Pflanzensahne zugeben. Kapern, Zitronensaft, Muskat, Piment und Lorbeerblatt zugeben und etwa 5 Minuten köcheln lassen. Stärke mit kaltem Wasser verrühren, zur Soße geben und aufkochen.
 
 Klopse mit Soße und Beilagen nach Wahl servieren, etwa mit Salzkartoffeln und Blumenkohl.

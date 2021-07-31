@@ -14,7 +14,7 @@
 
 ---
 
-Die Haselnüsse im vorgeheizten Backofen bei 180 °C Umluft auf einem Backblech für 6–8 min rösten. Haselnüsse in ein sauberes Küchenhandtuck einschlagen und so die Häutchen abreiben.
+Die Haselnüsse im vorgeheizten Backofen bei 180 °C Umluft auf einem Backblech für 6–8 min rösten. Haselnüsse in ein sauberes Küchenhandtuch einschlagen und so die Häutchen abreiben.
 
 Die gehäuteten Nüsse in einem Mixer etwa 2 Minuten pürieren, bis sie glatt sind. Die restlichen Zutaten zugeben und nochmals eine Minute pürieren.
 

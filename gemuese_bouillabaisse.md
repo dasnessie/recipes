@@ -1,4 +1,4 @@
-# Gemüse-Bouillabaise
+# Gemüse-Bouillabaisse
 
 *vegan, vegetarisch, Eintopf, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
@@ -20,7 +20,7 @@
 - *1 EL* getrockneter Oregano
 - *400 g* grüne Bohnen, TK
 - *0,1 g* gemahlener Safran
-- *400 g* stückigen Tomaten (Dose)
+- *400 g* stückige Tomaten (Dose)
 - *1* Bio-Orange
 - Salz
 - schwarzer Pfeffer
@@ -36,4 +36,4 @@ Bohnen, Safran und Tomaten zugeben und weitere 10-15 Minuten köcheln lassen, bi
 
 Orangen abwaschen, Schale abreiben und auspressen. Saft und Schalenabrieb zur Suppe geben. Petersilie waschen und hacken. Suppe mit Salz und Pfeffer abschmecken.
 
-Suppe mit Petrsilie bestreut servieren.
+Suppe mit Petersilie bestreut servieren.

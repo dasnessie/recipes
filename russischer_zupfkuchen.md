@@ -29,7 +29,7 @@ Ein sehr deutsches Rezept
 
 ## Teig
 
-Mehl, Backpulver und Kakao in eine Schüssel sieben. Zucker, Salz und Margerine zugeben. Mit den Händen durchkneten, bis ein glatter Teig entsteht.
+Mehl, Backpulver und Kakao in eine Schüssel sieben. Zucker, Salz und Margarine zugeben. Mit den Händen durchkneten, bis ein glatter Teig entsteht.
 
 Form einfetten. Die Hälfte des Teiges auf dem Boden der Form verteilen. 3/4 des restlichen Teigs an den Wänden der Form verteilen. Den restlichen Teig kühl stellen.
 

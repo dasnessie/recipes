@@ -24,4 +24,4 @@ Bananen schälen und zerdrücken. Äpfel entkernen und klein würfeln.
 
 Bananen, Äpfel und Apfelsaft zur Mehlmischung geben. Kurz vermischen, bis alles Mehl feucht ist. (Zu lange rühren führt zu zähen Muffins.) Teig in Muffinformen geben.
 
-In vorgeheitzten Ofen bei 150°C Umluft ca. 30 Minuten backen.
+In vorgeheizten Ofen bei 150°C Umluft ca. 30 Minuten backen.

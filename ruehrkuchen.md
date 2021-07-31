@@ -20,10 +20,10 @@ Als einfacher Kuchen aus der Kastenform oder als Obstkuchen vom Blech…
 
 ---
 
-Magerine, Zucker, Vanillezucker und Salz schaumig schlagen.
+Margarine, Zucker, Vanillezucker und Salz schaumig schlagen.
 
 Pflanzenmilch, Hälfte des Mehls und optional Kakao- oder Carobpulver zugeben und gut unterrühren.
 
 Restliches Mehl mit dem Backpulver mischen und von Hand unter den Teig heben.
 
-In die vorbereitete Form oder aufs vorbereitete Backblech geben, optional Obst zugeben und im vorgeheitzten Backofen bei 180 °C goldbraun backen: Für ein einfaches Rezept in einer Kastenform 50 bis 60 Minuten, für ein doppeltes Rezept auf einem Backblech etwa 35 Minuten.
+In die vorbereitete Form oder aufs vorbereitete Backblech geben, optional Obst zugeben und im vorgeheizten Backofen bei 180 °C goldbraun backen: Für ein einfaches Rezept in einer Kastenform 50 bis 60 Minuten, für ein doppeltes Rezept auf einem Backblech etwa 35 Minuten.

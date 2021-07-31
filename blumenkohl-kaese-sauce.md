@@ -23,5 +23,5 @@
 ---
 
 Blumenkohl, Kartoffeln und Möhren nach Bedarf putzen und zusammen in Salzwasser weich kochen. Abgießen.
-Alle Zutaten in den Mixer geben und fein pürrieren. Nach Belieben abschmecken.
+Alle Zutaten in den Mixer geben und fein pürieren. Nach Belieben abschmecken.
 

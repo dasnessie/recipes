@@ -32,4 +32,4 @@ Den restlichen Zucker mit dem Zimt vermischen.
 
 Je einen Esslöffel Teig zu einer Kugel rollen. Im Zimtzucker wälzen, auf ein Backblech setzen und vorsichtig etwas plattdrücken. 
 
-Im vorgeheitzten Backofen bei 190 °C Ober-/Unterhitze etwa 8 bis 10 Minuten backen.
+Im vorgeheizten Backofen bei 190 °C Ober-/Unterhitze etwa 8 bis 10 Minuten backen.

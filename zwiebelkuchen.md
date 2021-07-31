@@ -18,7 +18,7 @@
 
 - *1 kg* Gemüsezwiebeln
 - *200 g* Räuchertofu
-- *3 EL* Magarine
+- *3 EL* Margarine
 - Salz
 
 ## Guss
@@ -43,7 +43,7 @@ Die Hefe im Wasser auflösen. Mehl, Olivenöl, Salz vermischen. Hefe-Wasser-Gemi
 ## Belag
 
 Die Zwiebeln schälen, halbieren und in feine Streifen schneiden. Den Räuchertofu fein würfeln.
-Magarine in großer Pfanne oder Topf erhitzen. Tofu darin goldbraun braten. Zwiebeln zugeben und andünsten, bis sie glasig sind. Salzen.
+Margarine in großer Pfanne oder Topf erhitzen. Tofu darin goldbraun braten. Zwiebeln zugeben und andünsten, bis sie glasig sind. Salzen.
 
 ## Guss
 

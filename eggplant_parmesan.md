@@ -12,7 +12,7 @@
 - Salz
 - Pfeffer
 - *1 Topf* Basilikum
-- *500 g* [Mozarella](mozzarellaschmelz.md)
+- *500 g* [Mozzarella](mozzarellaschmelz.md)
 - *100 g* [Parmesan](parmesan.md)
 - *800 g* stückige Tomaten
 - *2 Zehen* Knoblauch
@@ -34,6 +34,6 @@ Panierte Aubergine in einer Pfanne in Öl goldbraun braten oder mit Öl beträuf
 
 Zwiebeln und Knoblauch würfeln. In Topf anbraten, Tomaten, Oregano, Zucker, Thymian, Majoran und Zimt zugeben und köcheln lassen.
 
-Basilikum grob hacken. Ein Drittel der Sauce in eine Auflaufform geben. Hälfte der Aubergine daraufgeben, Hälfte des Basilikums, Hälfte des Mozzarellas und Hälfte des Parmesans darauf verteilen. Wieder mit Soße bedecken, Auberginen darauf verteilen, restliche Soße daraufgeben, mit Basilikum bestreuen und mit dem restlichen Käse bedecken. Im vorgeheitztem Ofen bei 180 °C etwa 20 Minuten backen, bis es durcherhitzt ist und der Käse schön braun ist.
+Basilikum grob hacken. Ein Drittel der Sauce in eine Auflaufform geben. Hälfte der Aubergine daraufgeben, Hälfte des Basilikums, Hälfte des Mozzarellas und Hälfte des Parmesans darauf verteilen. Wieder mit Soße bedecken, Auberginen darauf verteilen, restliche Soße daraufgeben, mit Basilikum bestreuen und mit dem restlichen Käse bedecken. Im vorgeheizten Ofen bei 180 °C etwa 20 Minuten backen, bis es durcherhitzt ist und der Käse schön braun ist.
 
 Dazu Baguette oder Nudeln servieren.

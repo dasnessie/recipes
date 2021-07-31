@@ -28,7 +28,7 @@ Ahornsirup, Zuckerrübensirup und Vanilleextrakt unterrühren.
 
 Haferflocken, Mehl, Backpulver, Salz und Zimt vermischen.
 
-Haferflockenmischung zur Margerine geben und von Hand unterrühren.
+Haferflockenmischung zur Margarine geben und von Hand unterrühren.
 
 Wasser unterrühren, bis der Teig zwar bröselig ist, sich aber gut zu Kugeln rollen lässt und alle Bestandteile feucht sind.
 

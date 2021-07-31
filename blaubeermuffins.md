@@ -35,4 +35,4 @@ Die feuchten zu den trockenen Zutaten geben und kurz verrühren, bis alles gleic
 
 Die Blaubeeren unterheben.
 
-Den Teig in gefettete Muffinformen verteilen. Im vorgeheitzten Ofen bei 190°C Umluft ca. 18 Minuten backen. 
+Den Teig in gefettete Muffinformen verteilen. Im vorgeheizten Ofen bei 190°C Umluft ca. 18 Minuten backen. 

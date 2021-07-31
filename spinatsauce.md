@@ -10,7 +10,7 @@ Nudelsauce zu Penne o.ä.
 
 - *90 g* Räuchertofu
 - *3 EL* helle Sojasauce
-- *6 Trpf.* Flüssigrauch
+- *6 Tropfen* Flüssigrauch
 - *1* Zwiebel
 - *2 EL* Margarine
 - *2 EL* Mehl

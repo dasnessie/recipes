@@ -28,7 +28,7 @@ Tofu in Öl kross anbraten. Wenn er knusprig ist, mit Sojasoße ablöschen und z
 
 Reis aufsetzen.
 
-In großem Topf Kokosmilch, Gemüsebrühe und etwa 2/3 der Currypaste zum Kochen bringen. Brokkoli und Aubergine zugeben, aufkochen, zugedeckt ca. 4 Minuten köcheln lassen. Zuccini zugeben, weitere 4-5 Minuten köcheln lassen. 
+In großem Topf Kokosmilch, Gemüsebrühe und etwa 2/3 der Currypaste zum Kochen bringen. Brokkoli und Aubergine zugeben, aufkochen, zugedeckt ca. 4 Minuten köcheln lassen. Zucchini zugeben, weitere 4-5 Minuten köcheln lassen. 
 
 Wenn das Gemüse gar ist, Zucker und Tofu zugeben, mit restlicher Currypaste und Salz abschmecken.
 

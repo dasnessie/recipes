@@ -14,17 +14,17 @@ Erinnert an Dofino Dill
 - *316 ml* ungesüßte Sojamilch
 - *60 g* Tapiokastärke
 - *4 TL* Hefeflocken
-- *1 EL* Kappa Caragen
+- *1 EL* Kappa Carageen
 - *1.25 TL* Salz
 - *2 EL* Dill
 
 ---
 
-Milchsäurepulver und Apfellessig in einer kleinen Schale vermischen und am Herd bereitstellen. Eine Form nach Bedarf einfetten oder mit Frischhaltefolie auslegen.
+Milchsäurepulver und Apfelessig in einer kleinen Schale vermischen und am Herd bereitstellen. Eine Form nach Bedarf einfetten oder mit Frischhaltefolie auslegen.
 
 Kokosfett schmelzen.
 
-Sojamilch, Tapiokastärke, Hefeflocken, Caragen, Salz und Dill wahlweise mit einem Schneebesen oder im Mixer vermischen. Kokosfett hinzufügen und ebenfalls unterrühren.
+Sojamilch, Tapiokastärke, Hefeflocken, Carageen, Salz und Dill wahlweise mit einem Schneebesen oder im Mixer vermischen. Kokosfett hinzufügen und ebenfalls unterrühren.
 
 Die Mischung langsam und unter ständigem Rühren erhitzen. Sobald sie anfängt, leicht zu klumpen, kräftig rühren, um das Fett in die Masse zu emulgieren. Wenn die Masse 79 °C warm ist, ist sie fertig.
 
