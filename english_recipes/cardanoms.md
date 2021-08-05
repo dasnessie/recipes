@@ -4,7 +4,7 @@
 
 ---
 
-- *3.5 g* ground cardamon (3.5 g ≃ 2 teaspoons)
+- *3.5 g* ground cardamon (3.5 g = 2 teaspoons)
 - *150 g* Flour
 - *150 g* soft wheat semolina
 - *175 g* butter
