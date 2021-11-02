@@ -27,7 +27,7 @@ Inspiriert von [dem Andong-Video](https://youtu.be/B1w7iNOkcsA)
 - *2 EL* dunkler chinesischer Essig
 - *1 TL* Sesamöl
 - *1 EL* vegane Butter
-- *100 g* [Käsesauce](davids_kaesesauce.md)
+- *200 g* [Käsesauce](davids_kaesesauce.md)
 - [Parmesan](parmesan.md) nach Geschmack
 
 ---
