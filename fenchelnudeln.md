@@ -14,7 +14,7 @@
 - *1 TL* Oregano
 - *1* Zitrone
 - *50 g* Panko
-- *50 g gemahlene Mandeln
+- *50 g* gemahlene Mandeln
 - *400 g* Linguine
 - *200 g* Kokosmilch
 - *250 ml* Pflanzensahne
