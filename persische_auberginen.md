@@ -23,9 +23,7 @@ Persisches Auberginengericht, dazu Minzjoghurt
 - Paprika rosenscharf
 - Kurkuma
 - Zimt
-- Kreuzkümmel354.17 g kleine Tomaten
-*2 EL Agavendicksaft o.ä.
-5.67 EL Öl
+- Kreuzkümmel
 - Koriander
 
 ## Minzjoghurt
