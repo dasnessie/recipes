@@ -1,6 +1,5 @@
 # Blueberry muffins
 
-*vegan, vegetarian, cake, june, july, august, september
 
 **12 muffins**
 

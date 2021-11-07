@@ -1,6 +1,6 @@
 # Apfelrotkohl
 
-*einfriefgeeignet, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*einfriergeeignet, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen, 1 kg Kohl**
 

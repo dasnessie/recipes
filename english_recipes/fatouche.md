@@ -1,7 +1,5 @@
 # Fattouche
 
-*vegan, vegetarian, salad, january, february, march, april, may, june, july, august, september, october, november, december*
-
 **4 servings as main dish, 6 servings as side dish**
 
 ---
