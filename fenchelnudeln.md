@@ -28,7 +28,7 @@ Den Backofen auf 190ºC vorheizen.
 
 Die Blättchen von Fenchel abzupfen (sie eignen sich hervorragend zum Garnieren) und die Fenchelstiele abschneiden und entsorgen. Den Fenchel halbieren, dann vierteln und jedes Viertel der Länge nach halbieren. So erhält man 8 Fenchelspalten pro Knolle. Die Fenchelspalten in einer Lage in einer großen Auflaufform anordnen und dann mit den 2 Esslöffeln Öl beträufeln. Mit Salz und Pfeffer bestreuen und ein paar Mal wenden, um sicherzustellen, dass sie gut bedeckt sind. 20 Minuten backen, bis sie weich und karamellisiert sind. Beiseite stellen.
 
-Den Knoblauch und die Schalotten schälen und fein hacken. Die Zitronenschale abreiben. Die Butter in einer Pfanne schmelzen lassen, dann den Knoblauch und die Schalotten hinzugeben und bei niedriger Hitze braten, bis sie weich sind. Den frischen Oregano, die Zitronenschale, die Semmelbrösel ud die gemahlenen Mandeln hinzufügen. 
+Den Knoblauch und die Schalotten schälen und fein hacken. Die Zitronenschale abreiben. Die Butter in einer Pfanne schmelzen lassen, dann den Knoblauch und die Schalotten hinzugeben und bei niedriger Hitze braten, bis sie weich sind. Den Oregano, die Zitronenschale, die Semmelbrösel ud die gemahlenen Mandeln hinzufügen. 
 
 Die Mischung gut umrühren und braten, bis die Semmelbrösel knusprig und golden sind. Großzügig mit Salz und Pfeffer würzen und dann die Pangrattato-Mischung in eine kleine Schüssel geben. 
 
