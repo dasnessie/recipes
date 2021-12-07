@@ -8,11 +8,11 @@
 - *2 tbsp* cocoa powder
 - *250 g* margarine
 - *125 g* powdered sugar
-- 1* organic orange, zest of it
+- *1* organic orange, zest of it
 - *3 tbsp* orange juice
 - *1 tsp* vanilla extract
 - *1 pinch* salt
-- 350 g* flour
+- *350 g* flour
 - cling film
 
 ---
