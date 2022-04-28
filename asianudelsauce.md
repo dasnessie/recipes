@@ -8,7 +8,8 @@
 
 - *2 TL* Tamarind-Paste
 - *1 TL* Worcestersauce
-- *6 EL* Simple Syrup (1 Teil Wasser gelöst in 1 Teil Zucker)
+- *5 EL* Zucker
+- *4 EL* Wasser
 - *0.75 TL* MSG
 - *2 EL* dunkle Sojasauce
 - *1 Prise* Ingwer getrocknet
