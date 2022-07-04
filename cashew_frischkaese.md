@@ -8,7 +8,7 @@ neutraler Frischkäse, etwas süßer als Käse aus Kuhmilch
 
 ---
 
-- *200 g* Cashews
+- *200 g* Cashews 
 - *30 g* raffiniertes Kokosfett
 - *150 ml* Wasser
 - *3 EL* Zitronensaft

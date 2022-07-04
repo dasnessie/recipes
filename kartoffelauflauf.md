@@ -10,7 +10,7 @@
 
 ## Guss
 
-- *140 g* Cashewkerne
+- *140 g* Cashewkerne (alternativ Cashewmus, wenn kein Hochleistungsmixer vorhanden ist)
 - *240 ml* Gemüsebrühe
 - *240 ml* pflanzliche Milch (oder Wasser)
 - Salz

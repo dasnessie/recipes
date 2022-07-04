@@ -9,7 +9,7 @@
 - *1 kg* TK-Blumenkohl
 - *200 g* Kartoffeln festkochend
 - *100 g* Möhren
-- *75 g* Cashews
+- *75 g* Cashews (alternativ Cashewmus, wenn kein Hochleistungsmixer vorhanden ist)
 - *150* ml Pflanzenmilch
 - *2 EL* Hefeflocken
 - *2 TL* Zitronensaft

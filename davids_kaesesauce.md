@@ -10,7 +10,7 @@
 - *50g* Karotten
 - *60g* Zwiebeln
 - *125ml* kochendes Wasser
-- *85g* Cashews
+- *85g* Cashews (alternativ Cashewmus, wenn kein Hochleistungsmixer vorhanden ist)
 - *100g* pflanzliche Margarine
 - *2.67 EL* Hefeflocken
 - *1.33 EL* Zitronensaft

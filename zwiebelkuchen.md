@@ -23,7 +23,7 @@
 
 ## Guss
 
-- *100 g* Cashewkerne
+- *100 g* Cashewkerne (alternativ Cashewmus, wenn kein Hochleistungsmixer vorhanden ist)
 - *400 g* Sojajoghurt
 - *3 EL* Hefeflocken
 - *2 EL* Zitronensaft

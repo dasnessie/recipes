@@ -6,7 +6,7 @@
 
 ---
 
-- *35 g* Cashews
+- *35 g* Cashews (alternativ Cashewmus, wenn kein Hochleistungsmixer vorhanden ist)
 - *1,5 TL* Flohsamenschalen
 - *400 ml* Wasser
 - *2 TL* Apfelessig
