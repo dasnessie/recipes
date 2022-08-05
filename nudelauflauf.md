@@ -21,7 +21,7 @@ Wie der klassische deutsche Nudelauflauf mit Ei-Sahne-Guss
 
 - *400 g* Seidentofu
 - *200 g* Sojasahne
-- *2 TL* [Rühreigewürz](ruehreigewürz.md)
+- *2 TL* [Rühreigewürz](ruehreigewuerz.md)
 - *1/2 TL* Knoblauchpulver
 - Salz
 - Pfeffer
