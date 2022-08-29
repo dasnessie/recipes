@@ -23,7 +23,7 @@ Weihnachtsgebäck, ähnlich wie Stollen
 
 Milch mit Hefe und 1 TL vom Zucker in einer kleinen Schüssel mischen und stehen lassen, bis es schäumt.
 
-Mehl mit Salz mischen und die Hälfte mit der Hefe, der Butter und dem Zucker zu einem weichen Teig rühren. Abgedeckt an einem warmen Ort 30 Minuten gehen lassen.
+Mehl mit Salz mischen und die Hälfte mit der Hefe, der Margarine und dem Zucker zu einem weichen Teig rühren. Abgedeckt an einem warmen Ort 30 Minuten gehen lassen.
 
 Restliches Mehl dazugeben und zu einem glatten Teig kneten.
 
