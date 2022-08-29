@@ -45,4 +45,4 @@ Den Käseschmelz zubereiten.
 
 Nudeln, Gemüse und Guss vermischen und in eine Auflaufform geben. Mit dem Käseschmelz bedecken.
 
-Im vorgeheitzten Ofen bei 200 °C Ober-/Unterhitze etwa 35 Minuten backen, bis der Auflauf godbraun und der Guss gestockt ist.
+Im vorgeheizten Ofen bei 200 °C Ober-/Unterhitze etwa 35 Minuten backen, bis der Auflauf goldbraun und der Guss gestockt ist.
