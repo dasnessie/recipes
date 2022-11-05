@@ -10,7 +10,7 @@ I once heard someone suggest that veggie Shepherd's Pie be called Gardener's Pie
 
 ## Kartoffelbrei
 
-- *600* Kartoffeln (mehlig kochend)
+- *600 g* Kartoffeln (mehlig kochend)
 - *150 ml* Pflanzenmilch
 - *40 g* vegane Butter
 
