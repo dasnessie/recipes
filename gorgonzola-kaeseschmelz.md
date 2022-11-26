@@ -1,6 +1,6 @@
-# kräftiger Käseschmelz
+# Gorgonzola-Käseschmelz
 
-Als Alternative zu Bergkäse wie zB Gruyère.
+Als Alternative zu Gorgonzola.
 Entweder sofort verwenden oder abgedeckt im Kühlschrank aufbewahren. Wird beim Abkühlen fester und klebrig, kann durch Erhitzen wieder flüssiger gemacht werden.
 
 *vegan, vegetarisch, Käse, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
@@ -10,13 +10,12 @@ Entweder sofort verwenden oder abgedeckt im Kühlschrank aufbewahren. Wird beim 
 ---
 
 - *250 ml* [Käseschmelzbasis](kaeseschmelz-basis.md)
-- *1.5 EL* helle Misopaste
-- *1 EL* Hefeflocken
-- *1 EL* trockener Wermut
-- *1 TL* Apfelessig
-- *0.25 TL* Salz
-- *0.25 TL* gemahlener Senf
-- *0.125 TL* gemahlener Koriander
+- *3.5 TL* helle Misopaste
+- *2 TL* Weißweinessig
+- *0.25 TL* Milchsäurepulver
+- *1 TL* Salz
+- *0.25 TL* Zwiebelpulver
+- *0.125 TL* Knoblauchpulver
 
 ---
 
