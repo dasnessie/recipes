@@ -24,4 +24,4 @@ A southern German/Austrian pasta dish. The original is sometimes made with bacon
 
 Clean and wash the cabbage and cut into 1.5 cm wide strips. Peel and finely dice onions and garlic. Heat oil in large pot, sauté onions. Add garlic and sweat as well. Add cabbage, increase heat and fry for about 5 minutes. Deglaze with broth and vinegar and simmer in covered pot for about 12-15 minutes. Drain tomatoes, dice finely and add to cabbage.
 
-In the meantime, cook pasta al dente. Wash, clean and chop parsley. Drain pasta, add to cabbage, add parsley and mix. Season with salt, bell pepper, paprika powder and cumin.
+In the meantime, cook pasta al dente. Wash, clean and chop parsley. Drain pasta, add to cabbage, add parsley and mix. Season with salt, pepper, paprika powder and cumin.
