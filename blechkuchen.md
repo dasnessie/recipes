@@ -1,6 +1,6 @@
 # Grundrezept Rührkuchen
 
-Als einfacher Kuchen aus der Kastenform oder als Obstkuchen vom Blech…
+Als einfacher Kuchen aus der Kastenform oder als Obstkuchen vom Blech. Ergibt einen recht feuchten Kuchen.
 
 *vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
