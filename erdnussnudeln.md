@@ -21,7 +21,7 @@ asiatisch inspiriert
 - *2 EL* Sojasauce
 - *2 EL* Zitronensaft
 - *1 EL* Ahornsirup
-- *4 EL* Sriracha
+- *2 EL* Sriracha Original (grüner Deckel)
 - *200 ml* Kokosmilch
 - *1 walnussgroßes Stück* Ingwer
 - Salz
@@ -32,6 +32,6 @@ Das Gemüse waschen, putzen und kleinschneiden. Den Knoblauch schälen und in d�
 
 Die Nudeln al dente kochen. Das Gemüse in einem großen Topf anbraten, nach einegen Minuten den Knoblauch zugeben und mitbraten.
 
-Alle Zutaten für die Soße zusammen pürieren. 
+Alle Zutaten für die Soße zusammen pürieren. Nach Geschmack mehr Sriracha zugeben.
 
 Nudeln abgießen und zum Gemüse geben, Soße zugeben und vermischen. Kurz aufkochen, mit Erdnüssen bestreuen und servieren.
