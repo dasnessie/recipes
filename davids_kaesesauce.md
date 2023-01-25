@@ -2,7 +2,7 @@
 
 *vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember, Nudeln*
 
-**8 Portionen, 600 g**
+**4 Portionen, 600 g**
 
 ---
 
