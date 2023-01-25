@@ -26,6 +26,8 @@
 - *2 EL* Bratöl
 - *1* unbehandelte Limette
 
+## Salat
+
 - *40 g* Frühlingszwiebeln
 - *2 TL* geröstetes Sesamöl
 - *1* Salatgurke
