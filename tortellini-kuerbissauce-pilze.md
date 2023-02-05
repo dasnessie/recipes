@@ -18,7 +18,7 @@
 - Salz
 - *1 EL* Weißweinessig
 - Pfeffer
-- *500 g* Tortellini (aus dem Kühlregal, trocken: ca 20 % weniger)
+- *1 kg* Tortellini (aus dem Kühlregal, trocken: ca 20 % weniger)
 - *200 g* Pflanzensahne
 - Muskat
 - Kürbiskernöl
