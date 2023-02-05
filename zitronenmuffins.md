@@ -6,18 +6,18 @@
 
 ---
 
-*250 g* Weizenmehl (Type 405)
-*150 g* Zucker
-*3 TL* Backpulver
-*2* Biozitronen, Schale davon
-*50 ml* Zitronensaft
-*100 ml* neutrales Öl
-*150 ml* Sprudelwasser
+- *250 g* Weizenmehl (Type 405)
+- *150 g* Zucker
+- *3 TL* Backpulver
+- *2* Biozitronen, Schale davon
+- *50 ml* Zitronensaft
+- *100 ml* neutrales Öl
+- *150 ml* Sprudelwasser
 
 ## Guss
 
-*150 g* Puderzucker 
-*4 EL* Zitronensaft
+- *150 g* Puderzucker 
+- *4 EL* Zitronensaft
 
 ---
 
