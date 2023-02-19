@@ -6,15 +6,10 @@
 
 ---
 
-## Teig 
-
-- *500 g* Mehl, Type 550 oder Type 00
-- *2 TL* Salz
-- *14 g* Trockenhefe
-- *300 g* Wasser, etwa 30 °C
-- Olivenöl
+- *800 g* [Focacciateig](focacciateig.md)
 
 ## Toppings
+
 - *100 g* Cocktailtomaten
 - *20 g* Knoblauch, eingelegt
 - *1 EL* Kapern
@@ -24,10 +19,6 @@
 ---
 
 ![eine fertige Focaccia](pics/focaccia.jpg)
-
-Mehl, Salz und Hefe mischen. Wasser schluckweise zugeben ud mit den Knethaken des Handrührgeräts etwa 5 Minuten zu einem glatten Teig kneten.
-
-Teig zu einer Kugel formen, mit Olivenöl einreiben und mit einem feuchten Küchenhandtuch abgedeckt an einem warmen Ort etwa eine Stunde gehen lassen.
 
 Das Backblech bzw. die Auflaufform mit Olivenöl einreiben und den Boden mit Meersalzflocken bestreuen. Den Teig in die Form stürzen und mit den Fingern vorsichtig in die Ecken ziehen. Mit einem feuchten Handtuch abdecken und eine weitere halbe Stunde gehen lassen.
 
