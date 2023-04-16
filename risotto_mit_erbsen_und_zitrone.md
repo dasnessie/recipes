@@ -32,4 +32,4 @@ Margarine in weiterem Topf erhitzen. Zwiebeln anschwitzen, dann Knoblauch zugebe
 
 Mit Weißwein ablöschen, unter Rühren köcheln lassen, bis die Flüssigkeit verdampft ist. Dann ein bis zwei Kellen Brühe zugeben, unterrühren, und wieder unter gelegentlichem Rühren köcheln lassen, bis die Flüssigkeit aufgenommen ist. Diesen Prozess wiederholen, bis der Reis fast bissfest ist. Dann die Erbsen zugeben und weiter Brühe zugeben, bis der Reis grade bissfest ist. Sollte die Brühe zu schnell aufgebraucht sein, weitere Gemüsebrühe zubereiten und damit weitermachen.
 
-Zitronenschale, Hefeflocken und Kräuter unterrühren. Ist mehr Cremigkeit gewünscht oder das Risotto zu sauer geraten, Nussmus unterrühren. Das Risotto mit Hefeflocken, Misopaste, Zitronensaft, Salz und Pfeffer abschmecken. Sofort servieren.
+Zitronenschale, Hefeflocken und Kräuter unterrühren. Ist mehr Cremigkeit gewünscht oder das Risotto zu sauer geraten, Nussmus in etwas Brühe verrühren um Klümpchen zu vermeiden, dann unterrühren. Das Risotto mit Hefeflocken, Misopaste, Zitronensaft, Salz und Pfeffer abschmecken. Sofort servieren.
