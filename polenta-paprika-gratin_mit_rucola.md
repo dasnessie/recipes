@@ -15,7 +15,7 @@
 - *900 ml* Gemüsebrühe
 - *1 Msp* Cayennepfeffer
 - *250 g* Polenta
-- *150 g* [Parmesanschmelz](parmesanschmelz.md)
+- *250 g* [Parmesanschmelz](parmesanschmelz.md)
 - Salz
 - Pfeffer
 
