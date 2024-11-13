@@ -19,7 +19,7 @@ einfache, gekochte Pizzasauce nach J. Kenji López-Alt
 - Salz
 - *2 Zweige* Basilikum
 - *0.5 TL* Zucker
-- 
+
 ---
 
 Zwiebeln und Knoblauch schälen und würfeln. Öl und Butter in Topf erhitzen, Zwiebeln anbraten. Knoblauch zugeben und ebenfalls anbraten. Tomatenmark zugeben und kurz mit anrösten.
