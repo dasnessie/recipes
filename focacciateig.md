@@ -14,6 +14,6 @@
 
 ---
 
-Mehl, Salz und Hefe mischen. Wasser schluckweise zugeben ud mit den Knethaken des Handrührgeräts etwa 5 Minuten zu einem glatten Teig kneten.
+Mehl, Salz und Hefe mischen. Wasser schluckweise zugeben und mit den Knethaken des Handrührgeräts etwa 5 Minuten zu einem glatten Teig kneten.
 
 Teig zu einer Kugel formen, mit Olivenöl einreiben und mit einem feuchten Küchenhandtuch abgedeckt an einem warmen Ort etwa eine Stunde gehen lassen. Nach Rezept weiter verarbeiten, dabei in der Form nochmal eine halbe Stunde gehen lassen.
