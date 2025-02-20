@@ -29,10 +29,10 @@ Sauerkraut abtropfen lassen, Saft auffangen. Ingwer fein würfeln. Tofu auspress
 
 Wasser aufkochen, Sahne zugeben, salzen. Reis darin garen, bis alle Flüssigkeit aufgenommen ist. Zwiebeln und Knoblauch fein würfeln. Paprika in 2 cm große Würfel schneiden.
 
-Tofu aus Marinande nehmen, Hälfte des Öls in Pfanne erhitzen und Tofu darin knusprig braten. Mit Hälfte der verbleibenden Sojasoße ablöschen, einkochen lassen, Tofu aus Pfanne nehmen.
+Tofu aus Marinade nehmen, Hälfte des Öls in Pfanne erhitzen und Tofu darin knusprig braten. Mit Hälfte der verbleibenden Sojasoße ablöschen, einkochen lassen, Tofu aus Pfanne nehmen.
 
 Restliches Öl in Pfanne erhitzen, Zwiebeln, Knoblauch und Ingwer anbraten. Paprika zugeben, kurz mit anbraten. Tofu und Marinade zugeben und untermischen.
 
-Chiliflocken, Sauerkraut und restliche Sojasoße zugeben, einkochen lassen. Cashewkerne rösten. Sauerkraut mit Salz, Pfeffer und Zucker abschmecken. 
+Chiliflocken, Sauerkraut und restliche Sojasoße zugeben, einkochen lassen. Cashewkerne rösten. Sauerkraut mit Salz, Pfeffer und Zucker abschmecken.
 
 Sauerkraut auf Reis anrichten und mit Cashewkernen garnieren.
