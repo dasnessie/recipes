@@ -23,4 +23,4 @@ Als einfacher Kuchen aus der Kastenform. Gut als Grundlage für einen Schoko-, V
 
 Mehl, Stärke, Sojamehl, Zucker, Backpulver, Natron und Kala Namak mischen. Milch, Öl und Zitronensaft oder Essig zugeben und kurz von Hand verrühren, bis es grade kein trockenes Mehl mehr gibt.
 
-In die vorbereitete Form geben und im vorgeheizten Backofen bei 180 °C etwa 50 Minuten goldbraun backen.
+In die vorbereitete Form geben und im vorgeheizten Backofen bei 180 °C Umluft etwa 50 Minuten goldbraun backen.
