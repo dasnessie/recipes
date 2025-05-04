@@ -2,7 +2,7 @@
 
 asiatisch inspiriert
 
-*vegan, vegetarisch, Nudeln, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, Nudeln, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **2 Portionen**
 

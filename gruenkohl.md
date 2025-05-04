@@ -2,7 +2,7 @@
 
 Deftig
 
-*vegan, vegetarisch, Januar, Februar, März, Oktober, November, Dezember*
+*vegan, vegetarisch, skalierbar, Januar, Februar, März, Oktober, November, Dezember*
 
 **2 Portionen**
 

@@ -1,6 +1,6 @@
 # Ofen-Tandoori mit Brokkoli und Kichererbsen
 
-*vegan, vegetarisch, Juni, Juli, August, September, Oktober*
+*vegan, vegetarisch, skalierbar, Juni, Juli, August, September, Oktober*
 
 **4 Portionen**
 

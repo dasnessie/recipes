@@ -1,6 +1,6 @@
 # Spaghetti alla Puttanesca
 
-*vegan, vegetarisch, Nudeln, Saucen, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, Nudeln, Saucen, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen**
 

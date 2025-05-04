@@ -1,6 +1,6 @@
 # Spinatlasagne
 
-*vegan, vegetarisch, Auflauf, Nudeln, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, Auflauf, Nudeln, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **5 Portionen**
 

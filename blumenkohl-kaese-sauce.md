@@ -1,6 +1,6 @@
 # Blumenkohl-Käsesauce
 
-*Nudeln, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*Nudeln, vegan, vegetarisch, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen**
 

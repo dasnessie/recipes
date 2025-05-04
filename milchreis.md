@@ -1,6 +1,6 @@
 # Milchreis
 
-_vegan, vegetarisch, Nachtisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember_
+_vegan, vegetarisch, Nachtisch, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember_
 
 **3 Portionen, 6 Portionen (Nachtisch)**
 

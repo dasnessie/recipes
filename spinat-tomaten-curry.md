@@ -1,6 +1,6 @@
 # Spinat-Tomaten-Curry mit Linsen-Reis
 
-*vegan, vegetarisch, Curry, Reis, einfriergeeignet, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, Curry, Reis, einfriergeeignet, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **3 Portionen**
 

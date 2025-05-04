@@ -1,6 +1,6 @@
 # Gurkensuppe
 
-*Suppe, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*Suppe, vegan, vegetarisch, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **3 Portionen, 2 l**
 

@@ -1,6 +1,6 @@
 # Miso-Ofengemüse mit Gurkensalat und Ingwer-Limetten-Reis
 
-_vegan, vegetarisch, Juni, Juli, August, September_
+_vegan, vegetarisch, skalierbar, Juni, Juli, August, September_
 
 **4 Portionen**
 

@@ -2,7 +2,7 @@
 
 Salatdressing, passt wunderbar zu Spinat oder ähnlich kräftigen Blättern
 
-*vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, Saucen, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen**
 

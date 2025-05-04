@@ -1,6 +1,6 @@
 # Davids Käsesauce
 
-*vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember, Nudeln*
+*vegan, vegetarisch, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember, Nudeln*
 
 **4 Portionen, 600 g**
 

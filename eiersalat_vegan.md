@@ -1,6 +1,6 @@
 # veganer Eiersalat
 
-*vegan, vegetarisch, Salat, Nudeln, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, Salat, Nudeln, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **8 Portionen**
 

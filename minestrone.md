@@ -1,6 +1,6 @@
 # Minestrone
 
-*Eintopf, einfriergeeignet, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*Eintopf, einfriergeeignet, skalierbar, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **3l, 4 Portionen**
 

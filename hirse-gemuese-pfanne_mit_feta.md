@@ -2,7 +2,7 @@
 
 Ein sehr leckeres Mittagessen, das in knapp 30 Minuten auf dem Tisch steht! Frisch, gesund und saisonal überzeugt die Hirse-Pfanne einfach jeden!
 
-*vegan, vegetarisch, Januar, Februar, März, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, skalierbar, Januar, Februar, März, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **3 Portionen**
 

@@ -2,7 +2,7 @@
 
 Herzhafter Quittenschmortopf
 
-*vegan, vegetarisch, September, Oktober, November*
+*vegan, vegetarisch, skalierbar, September, Oktober, November*
 
 **4 Portionen**
 

@@ -2,7 +2,7 @@
 
 Einfach, schnell und lecker. Dazu passt gut ein frischer Salat.
 
-*vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **2 Portionen**
 

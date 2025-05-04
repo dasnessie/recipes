@@ -1,6 +1,6 @@
 # Tomatenreis
 
-*vegan, vegetarisch, Reis, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, Reis, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **2 Portionen**
 

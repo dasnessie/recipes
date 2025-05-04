@@ -1,6 +1,6 @@
 # Schwedische Fischsuppe
 
-_vegan, vegetarisch, Eintopf, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember_
+_vegan, vegetarisch, Eintopf, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember_
 
 **3 Portionen**
 

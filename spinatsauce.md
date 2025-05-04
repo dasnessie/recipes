@@ -2,7 +2,7 @@
 
 Nudelsauce zu Penne o.ä.
 
-*vegan, vegetarisch, Nudeln, Saucen, einfriergeeignet, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, Nudeln, Saucen, einfriergeeignet, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **2 Portionen**
 

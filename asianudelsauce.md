@@ -1,6 +1,6 @@
 # Sauce für Asianudeln
 
-*asiatisch, Nudeln, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*asiatisch, Sauce, skalierbar, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **6 EL, 90 ml**
 

@@ -2,7 +2,7 @@
 
 Dazu Brot, Brötchen oder Croûtons servieren.
 
-*vegan, vegetarisch, einfriergeeignet, Eintopf, Januar, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, einfriergeeignet, Eintopf, skalierbar, Januar, August, September, Oktober, November, Dezember*
 
 **6 Portionen**
 

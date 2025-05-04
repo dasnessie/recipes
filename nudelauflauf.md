@@ -2,7 +2,7 @@
 
 Wie der klassische deutsche Nudelauflauf mit Ei-Sahne-Guss
 
-*Nudeln, Auflauf, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*Nudeln, Auflauf, vegan, vegetarisch, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen**
 

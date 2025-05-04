@@ -1,6 +1,6 @@
 # Rotkohlauflauf mit Hirse
 
-*vegan, vegetarisch, Auflauf, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, Auflauf, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen**
 

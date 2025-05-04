@@ -1,6 +1,6 @@
 # Nudeln mit Fenchel in Sahnesauce
 
-*vegan, vegetarisch, Juni, Juli, August, September, Oktober, November*
+*vegan, vegetarisch, skalierbar, Juni, Juli, August, September, Oktober, November*
 
 **4 Portionen**
 

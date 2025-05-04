@@ -1,6 +1,6 @@
 # Gemüse-Bouillabaisse
 
-*vegan, vegetarisch, Eintopf, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, Eintopf, skalierbar, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen**
 

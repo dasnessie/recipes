@@ -1,6 +1,6 @@
 # Fattouche
 
-*vegan, vegetarisch, Salat, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, Salat, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen als Hauptgericht, 6 Portionen als Beilage**
 

@@ -1,6 +1,6 @@
 # Bowl mit Hirse, Möhren, Birne, Feta, Nüssen, und Joghurt
 
-_vegan, vegetarisch, Januar, Februar, März, Juli, August, September, Oktober, November, Dezember_
+_vegan, vegetarisch, skalierbar, Januar, Februar, März, Juli, August, September, Oktober, November, Dezember_
 
 **4 Portionen**
 

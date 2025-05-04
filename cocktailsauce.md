@@ -1,6 +1,6 @@
 # Cocktailsauce
 
-*vegan, vegetarisch, Saucen, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, Saucen, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **250 ml**
 

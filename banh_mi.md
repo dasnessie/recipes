@@ -1,6 +1,6 @@
 # Bánh Mi mit Austernpilzen
 
-*asiatisch, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*asiatisch, vegan, vegetarisch, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **4 Portionen, 8 Baguettes**
 

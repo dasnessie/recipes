@@ -1,6 +1,6 @@
 # Buchweizentopf mit Pilzen und Rote Bete (Grechka s Greebami)
 
-*vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **3 Portionen, 2,5 l**
 

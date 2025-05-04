@@ -2,7 +2,7 @@
 
 einfachste Variante, nach Geschmack Gemüse hinzufügen
 
-*asiatisch, Nudeln, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*asiatisch, Nudeln, skalierbar, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **1 Portion**
 

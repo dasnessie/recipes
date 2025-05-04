@@ -2,7 +2,7 @@
 
 I once heard someone suggest that veggie Shepherd's Pie be called Gardener's Pie and I think that's a fantastic idea.
 
-*vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember, Auflauf*
+*vegan, vegetarisch, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember, Auflauf*
 
 **4 Portionen**
 

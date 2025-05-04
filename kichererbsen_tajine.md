@@ -1,6 +1,6 @@
 # Kichererbsen-Tajine
 
-*vegan, vegetarisch, Eintopf, einfriergeeignet, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+*vegan, vegetarisch, Eintopf, einfriergeeignet, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
 **3 Portionen, 2 Liter**
 
