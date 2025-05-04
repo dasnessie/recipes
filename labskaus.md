@@ -1,27 +1,29 @@
 # veganes Labskaus
 
-*vegan, vegetarisch, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+_vegan, vegetarisch, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember_
 
 **4 Portionen**
 
 ---
 
-- *100 g* Zwiebel
-- *400 g* Räuchertofu
-- *1 kg* Kartoffeln, vorwiegend festkochend
-- *3 EL* Rapsöl
-- *250 ml* Wasser
+- _100 g_ Zwiebel
+- _400 g_ Räuchertofu
+- _1 kg_ Kartoffeln, vorwiegend festkochend
+- _3 EL_ Rapsöl
+- _250 ml_ Wasser
 - Salz
-- *1 TL* Gemüsebrühe
-- *1* Lorbeerblatt
-- *6* Gewürzgurken
-- *200 g* Rote Bete, sauer eingelegt
+- _1 TL_ Gemüsebrühe
+- _1_ Lorbeerblatt
+- _6_ Gewürzgurken
+- _200 g_ Rote Bete, sauer eingelegt
 - Zucker
 - Essig
 - Senf
 - Pfeffer
 
 ---
+
+![Labskaus, auf einem Teller mit einer Gewürzgurke und etwas Dill angerichtet](pics/labskaus.png)
 
 Zwiebel schälen und würfeln. Vom Tofu pro Portion zwei Streifen für die Garnitur abschneiden, Rest hacken. Kartoffeln schälen, waschen und würfeln.
 
