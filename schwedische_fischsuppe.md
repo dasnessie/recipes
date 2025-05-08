@@ -25,6 +25,8 @@ _vegan, vegetarisch, Eintopf, skalierbar, Januar, Februar, März, April, Mai, Ju
 
 ---
 
+![Ein Teller Fischsuppe, hier mit Croutons aus Vollkornbrot](pics/fischsuppe.jpg)
+
 Tofu in 1 cm große Würfel schneiden. Fischfond mit Kombu aufkochen und kräftig mit Salz abschmecken. Tofu zugeben und köcheln lassen.
 
 Für die Suppe Zwiebel würfeln. Kartoffeln schälen und würfeln. Lauch putzen, in halbe Ringe schneiden, und waschen.
