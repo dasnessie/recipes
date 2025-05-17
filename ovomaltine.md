@@ -1,6 +1,6 @@
 # Getränk nach Art einer Ovomaltine
 
-*Cocktails, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+_Cocktails, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember_
 
 **100 ml Sirup, 2 l Getränk**
 
@@ -8,17 +8,20 @@
 
 ## Sirup
 
-- *2 EL* Kakaopulver
-- *120 g* Gerstenmalzsirup (Reformhaus)
-- *1 TL* Vanilleextrakt
-- *1 Priese* Salz
+- _2 EL_ Kakaopulver
+- _120 g_ Gerstenmalzsirup (Reformhaus)
+- _1 TL_ Vanilleextrakt
+- _1 Priese_ Salz
 
 ## fertiges Getränk
+
 - heißes Wasser
 - Milch nach Wahl
 - Zucker (optional)
 
 ---
+
+![Ein Glas Ovomaltine-Getränk, ein Schraubglas mit Sirup, und ein Karton Hafermilch](pics/ovomaltine.jpg)
 
 Für den Sirup alle Zutaten mit einer Gabel gut verrühren. Im Kühlschrank aufbewahren.
 
