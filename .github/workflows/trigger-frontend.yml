@@ -1,0 +1,18 @@
+name: Trigger Frontend Deploy
+
+on:
+  push:
+    branches:
+      - master
+
+jobs:
+  dispatch:
+    runs-on: ubuntu-latest
+
+    steps:
+      - name: Send repository_dispatch event to Frontend-Repo
+        uses: peter-evans/repository-dispatch@v3
+        with:
+          token: ${{ secrets.FRONTEND_TRIGGER_TOKEN }}
+          repository: dasnessie/recipe-web
+          event-type: trigger-deploy
