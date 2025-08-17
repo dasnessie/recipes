@@ -1,25 +1,25 @@
 # Kichererbsen-Tajine
 
-*vegan, vegetarisch, Eintopf, einfriergeeignet, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+_vegan, vegetarisch, Eintopf, einfriergeeignet, skalierbar, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember_
 
 **3 Portionen, 2 Liter**
 
 ---
 
-- *250 g* Möhren
-- *1* Lauch
-- *2* Zwiebeln
-- *200 g* Kichererbsen (Abtropfgewicht)
-- *2 EL* Olivenöl
-- *4 EL* Agavendicksaft
-- *800 g* stückige Tomaten
-- *2 TL* getrocknete Kräuter der Provence (Rosmarin, Thymian, Oregano)
-- *2 TL* Ras el-Hanout (Muskatnuss, Zimt, Anis, Kurkuma, Chili, Ingewer, Nelke, Piment, Kardamom, Kreuzkümmel, Kümmel)
-- *200 ml* Gemüsebrühe
-- *2* Knoblauchzehen
-- *1 TL* Petersilie
-- *1* Zitrone, unbehandelt
-- *100 g* grüne Oliven
+- _250 g_ Möhren
+- _1_ Lauch
+- _2_ Zwiebeln
+- _200 g_ Kichererbsen (Abtropfgewicht)
+- _2 EL_ Olivenöl
+- _4 EL_ Agavendicksaft
+- _800 g_ stückige Tomaten
+- _2 TL_ getrocknete Kräuter der Provence (Rosmarin, Thymian, Oregano)
+- _2 TL_ [Ras el Hanout](./ras-el-hanout.md) (Muskatnuss, Zimt, Anis, Kurkuma, Chili, Ingewer, Nelke, Piment, Kardamom, Kreuzkümmel, Kümmel)
+- _200 ml_ Gemüsebrühe
+- _2_ Knoblauchzehen
+- _1 TL_ Petersilie
+- _1_ Zitrone, unbehandelt
+- _100 g_ grüne Oliven
 - Salz
 - Pfeffer
 - Brötchen o.ä. als Beilage (optional)
