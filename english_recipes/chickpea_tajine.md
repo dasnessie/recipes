@@ -4,25 +4,27 @@
 
 ---
 
-- *250 g* carrots
-- *1* leek
-- *2* onions
-- *200 g* canned chickpeas, drained
-- *2 TBS* olive oil
-- *4 TBS* maple syrup
-- *800 g* canned crushed tomatoes
-- *2 tsp* Provencal herbs (rosemary, thyme, oregano)
-- *2 tsp* Ras el-Hanout (nutmeg, cinnamon, anise, turmeric, chili powder, ginger, clove, allspice, cardamom, cumin, caraway seeds)
-- *200 ml* vegetable broth
-- *2* cloves of garlic
-- *1 tsp* parlsey
-- *1* organic lemon
-- *100 g* green olives
+- _250 g_ carrots
+- _1_ leek
+- _2_ onions
+- _200 g_ canned chickpeas, drained
+- _2 TBS_ olive oil
+- _4 TBS_ maple syrup
+- _800 g_ canned crushed tomatoes
+- _2 tsp_ Provencal herbs (rosemary, thyme, oregano)
+- _2 tsp_ Ras el-Hanout (nutmeg, cinnamon, anise, turmeric, chili powder, ginger, clove, allspice, cardamom, cumin, caraway seeds)
+- _200 ml_ vegetable broth
+- _2_ cloves of garlic
+- _1 tsp_ parlsey
+- _1_ organic lemon
+- _100 g_ green olives
 - salt
 - pepper
 - bread on the side
 
 ---
+
+![A bowl of thick, red-orange stew. You can see half slices of carrots, chickpeas, and bits of leek in a tomato-based broth.](pics/kichererbsen_tajine.jpg)
 
 Peel and slice carrots. Clean leeks, cut into rings, wash and drain. Peel and finely dice onions. Rinse chickpeas in a sieve and drain.
 
