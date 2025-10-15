@@ -3,20 +3,20 @@
 Als Alternative zu Parmesan.
 Hält sich lange im Kühlschrank und wird mit der Zeit besser.
 
-*vegan, vegetarisch, Käse, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
+_vegan, vegetarisch, Käse, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember_
 
 **200 g**
 
 ---
 
-- *200 g* gemahlene Mandeln
-- *1 EL* helle Misopaste
-- *1 EL* Hefeflocken
-- *0.75 TL* Milchsäure (alternativ Apfelessig, dann am Ende mit Essig abschmecken)
-- *0.5 TL* Salz
-- *0.5 TL* Zwiebelpulver
-- *0.25 TL* Knoblauchpulver
-- *1 TL* Apfelessig
+- _200 g_ gemahlene Mandeln (oder Mandelmus, für "geschmolzenen" Parmesan)
+- _1 EL_ helle Misopaste
+- _1 EL_ Hefeflocken
+- _0.75 TL_ Milchsäure (alternativ Apfelessig, dann am Ende mit Essig abschmecken)
+- _0.5 TL_ Salz
+- _0.5 TL_ Zwiebelpulver
+- _0.25 TL_ Knoblauchpulver
+- _1 TL_ Apfelessig
 
 ---
 
