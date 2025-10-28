@@ -2,7 +2,7 @@
 
 süß-deftig
 
-_vegan, vegetarisch, Nudeln, Saucen, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember_
+_vegan, vegetarisch, Nudeln, Saucen, Juli, August, September, Oktober_
 
 **3 Portionen**
 
