@@ -17,7 +17,7 @@ _vegan, vegetarisch, Eis, Januar, Februar, März, April, Mai, Juni, Juli, August
 
 Das Sojamilchpulver im heißen Wasser auflösen, um doppelt konzentrierte Milch zu erhalten.
 
-Alle Zutaten mit vermischen und mit dem Pürierstab pürieren, bis sich der Zucker vollständig aufgelöst hat.
+Alle Zutaten damit vermischen und mit dem Pürierstab pürieren, bis sich der Zucker vollständig aufgelöst hat.
 
 Masse in ein Ninja Creami Pint geben und mindestens 24 h gefrieren lassen.
 
