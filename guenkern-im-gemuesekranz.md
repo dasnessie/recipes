@@ -26,6 +26,8 @@ _vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, Sep
 
 ---
 
+![Grünkern in der Mitte des Tellers, drumherum ist das Gemüse arrangiert. Das Gemüse ist in kleine Stücke geschnitten, sodass man die einzelnen Sorten gar nicht recht erkennt, sieht aber schön bissfest aus. Der Grünkern sieht kernig aus.](pics/gruenkern-gemuesekranz.jpg)
+
 Die getrockneten Steinpilze hacken. Den Grünkern in einem Sieb kalt abspülen, dann mit den Steinpilzen in 1/4 l Wasser 6-10 Stunden (oder über Nacht) einweichen. Anschließend den Grünkern abgießen, in einen Topf geben und mit dem Gemüsefond 10 Minuten kochen. Danach vom Herd ziehen und 10-15 Minuten zugedeckt nachquellen lassen.
 
 Inzwischen das Gemüse waschen und putzen. Den Lauch und den Wirsing in Streifen schneiden, die Möhren, Kohlrabi und den Sellerie grob raspeln. Den Räuchertofu in 0,5 cm große Würfel schneiden.
