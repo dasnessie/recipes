@@ -10,7 +10,6 @@ _vegan, vegetarisch, Eis, Januar, Februar, März, April, Mai, Juni, Juli, August
 - _30 g_ Palmin
 - _62 g_ Zucker
 - _40 g_ [Sojamilchpulver](https://hiela.de/de/5-kg-eimer-soja-drink)
-- _75 g_ Zartbitterschokolade
 - _1 Msp_ Xanthan
 - _100 g_ Trockenpflaumen
 - _1 TL_ Zimt

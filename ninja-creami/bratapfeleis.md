@@ -11,7 +11,6 @@ _vegan, vegetarisch, Eis, Januar, Februar, März, April, Mai, Juni, Juli, August
 - _80 g_ Zucker
 - _1/4 TL_ Melasse
 - _40 g_ [Sojamilchpulver](https://hiela.de/de/5-kg-eimer-soja-drink)
-- _75 g_ Zartbitterschokolade
 - _1 Msp_ Xanthan
 - _50 g_ Apfelchips
 - _0.5 TL_ Zimt
