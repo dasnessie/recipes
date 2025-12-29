@@ -1,3 +1,9 @@
+# Vegane Alternativen
+
+---
+
+---
+
 Zutat | Alternative | Anmerkung
 ---|---|---
 *1* Ei | *80 g* Apfelmus | zum Binden und für Feuchtigkeit
