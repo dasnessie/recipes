@@ -2,25 +2,25 @@
 
 Schmeckt wie Fisch in Tomatensauce aus der Dose
 
-_skalierbar, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember_
+*skalierbar, vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember*
 
-**200 g**
+**300 g**
 
 ---
 
-- _150 g_ Edeka Thun-wie'n-Fisch mit Sonnenblumenöl
-- _5 EL_ Tomatenmark
-- _50 g_ Wasser
-- _1 EL_ weißer Balsamico-Essig
-- _2,5 TL_ Zucker
-- _1 TL_ Zitronensaft
-- _1,5 TL_ Salz
-- _2 TL_ Noriflocken
-- _1 TL_ Thymian
-- _0,5 TL_ Rosmarin gemahlen
-- _1 TL_ Oregano
-- _2 EL_ Leinöl
-- _1 g_ Omega 3 Algenöl, optional
+- *225 g* [Rügenwalder veganer Mühlen Mix no Thuna](https://www.ruegenwalder.de/de/produkte/vegane-produkte/vegane-pfannen-grillprodukte/muehlen-mix/no-thuna), nach Packungsanweisung zubereitet oder Edeka Thun-wie'n-Fisch mit Sonnenblumenöl
+- *7.5 EL* Tomatenmark
+- *75 g* Wasser
+- *1.5 EL* weißer Balsamico-Essig
+- *3.75 TL* Zucker
+- *1.5 TL* Zitronensaft
+- *2.25 TL* Salz
+- *3 TL* Noriflocken
+- *1.5 TL* Thymian
+- *0.75 TL* Rosmarin gemahlen
+- *1.5 TL* Oregano
+- *3 EL* Leinöl
+- *1.5 g* Omega 3 Algenöl, optional
 
 ---
 
