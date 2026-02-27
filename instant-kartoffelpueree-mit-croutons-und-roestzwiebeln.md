@@ -2,6 +2,8 @@
 
 Weil das von Aldi ja leider nicht mehr vegan ist. Alles muss man selber machen…
 
+_vegan, vegetarisch, Januar, Februar, März, April, Mai, Juni, Juli, August, September, Oktober, November, Dezember_
+
 **6 Portionen**
 
 ---
