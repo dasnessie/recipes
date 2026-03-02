@@ -19,7 +19,7 @@
 - *600 g* grüne Bohnen
 - *230 g* Mais
 - *250 g* kleine Tomaten
-- *2 EL Agavendicksaft o.ä.
+- *2 EL* Agavendicksaft o.ä.
 - *4 EL* Öl
 
 ---
